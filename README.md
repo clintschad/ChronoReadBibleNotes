@@ -8,7 +8,7 @@ Following the 1 year chronological reading from [here](https://www.blueletterbib
 ## Notes
 
 ### Sunday March 29th, 2026
-Read Genesis ch 1-2.
+Read Genesis Ch 1-2
 Chapter 1:
 * It is interesting that God says, "Let _us_ make man in our own image" (plural) but then a few verses later, says "I have given" returning to a singular form. So who is "us"? The Trinity? The angels?
 * It is interesting that God creates man to control the creatures of the planet.
@@ -18,3 +18,10 @@ Chapter 2:
 * Verse 4 is interesting in ESV and KJV: "generations of the heavens and the earth when they were created". Does that mean multiple versions of the heavens and earth? Or is generations simply referring to mankind?
 * Adam's first task was a garden keeper. He was also tasked with assigning names to ground animals and birds.
 * The woman was created to be a helper to Adam.
+
+### Monday March 31st, 2026
+Read Genesis Ch 3
+* The first sin is from desire for wisdom.
+* The man names his wife (Eve), not God. In Ch2, the man also creates the name woman in general.
+* In verse 22, the LORD GOD says "man has become one of _us_ in knowing good and evil." This is similar to Gen 1:26 before.
+* Maybe humans have more sophisticated thought than animals due to Adam and Eve eating the fruit, instead of / in addition to being made in God's image, since the fruit grants them wisdom and makes them as "one of them, knowing good and evil."
