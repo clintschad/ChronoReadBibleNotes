@@ -29,4 +29,4 @@ Read Genesis Ch 3
 ### Tuesday March 31st, 2026
 Read Genesis Ch 4
 * Interestingly, God tells Cain that sin is contrary to oneself, but that one must rule over it.
-* The end of the chapter mentions that people began to call up GOD's name. I understand this as the first handful of generations were not corrupt.
+* The end of the chapter mentions that people began to call upon GOD's name. I understand this as the first handful of generations were not corrupt.
