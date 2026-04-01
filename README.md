@@ -30,3 +30,11 @@ Read Genesis Ch 3
 Read Genesis Ch 4
 * Interestingly, God tells Cain that sin is contrary to oneself, but that one must rule over it.
 * The end of the chapter mentions that people began to call upon GOD's name. I understand this as the first handful of generations were not corrupt.
+
+### Wednesday April 1st, 2026
+Read Genesis Ch 5
+* Another reference to man created in the likeness of God.
+* Seth is in the image of Adam.
+* Geneology of Adam to Noah.
+* Enoch taken up.
+* Noah named by father because he would bring relief from the working of the ground which God had cursed.
