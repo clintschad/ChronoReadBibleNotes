@@ -38,3 +38,12 @@ Read Genesis Ch 5
 * Geneology of Adam to Noah.
 * Enoch taken up.
 * Noah named by father because he would bring relief from the working of the ground which God had cursed.
+
+### Thursday April 2nd, 2026
+Read Genesis Ch 6
+* Nephilim/giants
+* Man is corrupted, stating he is evil, wicked, and violent.
+* However, God plans to save Noah (and his family) and keep his promise through him.
+* God gives instructions to Noah how to build the ark.
+* God tells him what animals will be on board.
+
