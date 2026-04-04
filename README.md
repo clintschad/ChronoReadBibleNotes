@@ -24,6 +24,7 @@ Read Genesis Ch 3
 * The first sin is from desire for wisdom.
 * The man names his wife (Eve), not God. In Ch2, the man also creates the name woman in general.
 * In verse 22, the LORD GOD says "man has become one of _us_ in knowing good and evil." This is similar to Gen 1:26 before.
+* The wife's desire is "contrary" to her husbands, but she must listen to him.
 * Maybe humans have more sophisticated thought than animals due to Adam and Eve eating the fruit, instead of / in addition to being made in God's image, since the fruit grants them wisdom and makes them as "one of them, knowing good and evil."
 
 ### Tuesday March 31st, 2026
@@ -47,3 +48,13 @@ Read Genesis Ch 6
 * God gives instructions to Noah how to build the ark.
 * God tells him what animals will be on board.
 
+### Friday April 3rd, 2026
+Read Genesis Ch 7
+* The Flood
+* Interesting that it mentions clean and unclean animals which haven't yet been defined.
+* The flood waters reached up to 15 cubits (~22.5 ft) above the tallest mountain peak.
+* Fountains of the deep opened.
+* Rained for 40 days and 40 nights.
+* Flood waters "prevailing" on earth for 150 days.
+
+### 
