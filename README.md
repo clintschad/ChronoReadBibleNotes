@@ -56,6 +56,7 @@ Read Genesis Ch 7
 * Fountains of the deep opened.
 * Rained for 40 days and 40 nights.
 * Flood waters "prevailing" on earth for 150 days.
+* Going back to Ch 5, using Adam's geneology and the year in Noah's life when the flood had started, 1656 (if my math is correct) years had passed from the start of Adam to the start of the Flood.
 
 ### Sunday April 5th, 2026
 Read Genesis Ch 8
