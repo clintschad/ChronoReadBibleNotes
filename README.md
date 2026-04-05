@@ -57,4 +57,12 @@ Read Genesis Ch 7
 * Rained for 40 days and 40 nights.
 * Flood waters "prevailing" on earth for 150 days.
 
-### 
+### Sunday April 5th, 2026
+* Flood subsides. Ark rests on the [mountains of Ararat](https://en.wikipedia.org/wiki/Mount_Ararat).
+* While waiting for the waters to subside, Noah sends out a raven, and then a dove 3 times.
+* Noah is in the ark for over a year.
+* All the animals left by family.
+* Noah makes a sacrifice to God. God promises not to destroy all creatures again.
+
+
+
