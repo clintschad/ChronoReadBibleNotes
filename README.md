@@ -66,5 +66,13 @@ Read Genesis Ch 8
 * All the animals left by family.
 * Noah makes a sacrifice to God. God promises not to destroy all creatures again.
 
+### Monday April 6th, 2026
+Read Genesis Ch 9
+* God tells Noah and his sons to be fruitful and multiply.
+* God says every creature can be food now, but there can be no blood in it.
+* God says he requires blood for blood, so if a man is killed by a man or animal, that man or animal must be killed.
+* God makes a promise to Noah, his offspring, and all the animals, that He'll never again send a flood to kill all life. The rainbow is the sign of this.
+* Noah gets drunk. Ham tells his brothers, Shem and Japheth. Shem and Japheth cover their father without looking at his nakedness. Later, Noah blesses Shem and Japheth but curses Ham's descendants. Ham's descendants will be servants to Shem and Japheth's descendants.
+* Noah passes away.
 
 
