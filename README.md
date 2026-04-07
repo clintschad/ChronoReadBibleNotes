@@ -75,4 +75,10 @@ Read Genesis Ch 9
 * Noah gets drunk. Ham tells his brothers, Shem and Japheth. Shem and Japheth cover their father without looking at his nakedness. Later, Noah blesses Shem and Japheth but curses Ham's descendants. Ham's descendants will be servants to Shem and Japheth's descendants.
 * Noah passes away.
 
-
+### Tuesday April 7th, 2026
+Genesis Ch 10 - Nations from Noah
+* Japheth's sons occupy the Mediterranean coast, including Greece, and possibly Italy and Spain. Also Asian minor.
+* Ham's sons populate north Africa and the land of Canaan.
+* Shem's sons populate Mesopotamia and Arabia.
+* From Shem is Arpachsad, whose son is Shelah, whose son is Eber. From this line comes Abraham.
+* Arpachsad settles up the Tigris/Euphratess river from Ur, where (I believe) later Abraham comes from.
