@@ -82,3 +82,7 @@ Genesis Ch 10 - Nations from Noah
 * Shem's sons populate Mesopotamia and Arabia.
 * From Shem is Arpachsad, whose son is Shelah, whose son is Eber. From this line comes Abraham.
 * Arpachsad settles up the Tigris/Euphratess river from Ur, where (I believe) later Abraham comes from.
+
+### Wednesday April 8th-9th, 2026
+Genesis Ch 11 - The Tower of Babel
+* 
