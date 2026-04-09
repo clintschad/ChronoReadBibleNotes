@@ -84,5 +84,14 @@ Genesis Ch 10 - Nations from Noah
 * Arpachsad settles up the Tigris/Euphratess river from Ur, where (I believe) later Abraham comes from.
 
 ### Wednesday April 8th-9th, 2026
-Genesis Ch 11 - The Tower of Babel
-* 
+Genesis Ch 11 - The Tower of Babel and Abram
+Tower of Babel
+* Nimrod's descendants establish a civilization in the area of [Shinar](https://en.wikipedia.org/wiki/Shinar).
+* They decide to build a tall tower.
+* God's commentary is interesting. "This is only the beginning of what they will do. And nothing that they propose to do will now be impossible for them. Come, let us go down and there confuse their language..."
+* Who is "us" in the above passage?
+Abram
+* Lineage from Shem to Abram.
+* First lived in [Ur of the Chaldeans](https://en.wikipedia.org/wiki/Ur_of_the_Chaldees).
+* Abram's father (Terah), Abram himself, his wife Sarai, and Abram's nephew lot start traveling to Canaan, but stop and settle in [Haran](https://en.wikipedia.org/wiki/Harran).
+* Terah dies in Haran.
