@@ -85,6 +85,7 @@ Genesis Ch 10 - Nations from Noah
 
 ### Wednesday April 8th-9th, 2026
 Genesis Ch 11 - The Tower of Babel and Abram
+
 Tower of Babel
 * Nimrod's descendants establish a civilization in the area of [Shinar](https://en.wikipedia.org/wiki/Shinar) and decide to build a tall tower.
 * God's commentary is interesting. "This is only the beginning of what they will do. And nothing that they propose to do will now be impossible for them. Come, let us go down and there confuse their language..."
