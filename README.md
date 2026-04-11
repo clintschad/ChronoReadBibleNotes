@@ -104,7 +104,7 @@ Job Ch 1
 * Has large family of 7 sons and 3 daughters.
 * Is wealthy with 7k sheep, 3k camels, and 500 oxen.
 * Makes sacrifices to God just in case his children had sinned.
-* The "sons of God" are mentioned when Satan presents with them to the LORD God.
+* The [sons of God](https://en.wikipedia.org/wiki/Sons_of_God) are mentioned when Satan presents with them to the LORD God.
 * God tells Satan about his upright follower, Job. Satan says Job follows God only because he's blessed and it's easy for him. Satan says if God were to remove those blessings and make Job suffer, Job would curse God. God gives permission for Satan to make Job suffer, except not to physically hurt Job himself.
 * Bandits steal oxen and natural weather destroys the rest of Job's livestock and his children.
 * Job grieves greatly, but does not curse God.
