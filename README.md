@@ -96,3 +96,15 @@ Abram
 * First lived in [Ur of the Chaldeans](https://en.wikipedia.org/wiki/Ur_of_the_Chaldees).
 * Abram's father (Terah), Abram himself, his wife Sarai, and Abram's nephew lot start traveling to Canaan, but stop and settle in [Haran](https://en.wikipedia.org/wiki/Harran).
 * Terah dies in Haran.
+
+### Saturday, April 11th, 2026
+Job Ch 1
+* Job lives in the [land of Uz](https://en.wikipedia.org/wiki/Land_of_Uz). Area is suspected to be south of the Dead Sea. The person Uz is in Gen Ch 10, who is a son of Aram, a son of Shem.
+* Follows God.
+* Has large family of 7 sons and 3 daughters.
+* Is wealthy with 7k sheep, 3k camels, and 500 oxen.
+* Makes sacrifices to God just in case his children had sinned.
+* The "sons of God" are mentioned when Satan presents with them to the LORD God.
+* God tells Satan about his upright follower, Job. Satan says Job follows God only because he's blessed and it's easy for him. Satan says if God were to remove those blessings and make Job suffer, Job would curse God. God gives permission for Satan to make Job suffer, except not to physically hurt Job himself.
+* Bandits steal oxen and natural weather destroys the rest of Job's livestock and his children.
+* Job grieves greatly, but does not curse God.
