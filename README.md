@@ -117,3 +117,5 @@ Job Ch 2 - Satan Attacks Job's Health
 * Job doesn't curse God, despite his wife encouraging him to.
 * Job says to her _"Shall we receive good from God, and shall we not receive evil?"_
 
+READ REST OF CHAPTER 2
+
