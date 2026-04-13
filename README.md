@@ -108,3 +108,12 @@ Job Ch 1
 * God tells Satan about his upright follower, Job. Satan says Job follows God only because he's blessed and it's easy for him. Satan says if God were to remove those blessings and make Job suffer, Job would curse God. God gives permission for Satan to make Job suffer, except not to physically hurt Job himself.
 * Bandits steal oxen and natural weather destroys the rest of Job's livestock and his children.
 * Job grieves greatly, but does not curse God.
+
+### Monday, April 13th, 2026
+Job Ch 2 - Satan Attacks Job's Health
+* Sons of God and Satan present themselves to God.
+* God and Satan have a similar discussion as Ch1, except Satan says if Job's health is attacked, he'll curse God then. God gives Satan permission to inflict Job, but not to kill him.
+* Satan inflicts Job with sores.
+* Job doesn't curse God, despite his wife encouraging him to.
+* Job says to her _"Shall we receive good from God, and shall we not receive evil?"_
+
