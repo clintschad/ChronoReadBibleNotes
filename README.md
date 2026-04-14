@@ -124,5 +124,8 @@ Job's Friends Visit
 * The friends sit with Job 7 days and nights without speaking to Job, due to Job's misery.
 
 ### Tuesday, April 14th, 2026
+Job Ch 3 - Job curses his birth and mopes.
+
+
 
 
