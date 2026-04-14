@@ -83,7 +83,7 @@ Genesis Ch 10 - Nations from Noah
 * From Shem is Arpachsad, whose son is Shelah, whose son is Eber. From this line comes Abraham.
 * Arpachsad settles up the Tigris/Euphratess river from Ur, where (I believe) later Abraham comes from.
 
-### Wednesday April 8th-9th, 2026
+### Wednesday-Thursday April 8th-9th, 2026
 Genesis Ch 11 - The Tower of Babel and Abram
 
 Tower of Babel
@@ -110,12 +110,19 @@ Job Ch 1
 * Job grieves greatly, but does not curse God.
 
 ### Monday, April 13th, 2026
-Job Ch 2 - Satan Attacks Job's Health
+Job Ch 2 - Satan Attacks Job's Health and Job's Friends Visit
+
+Satan Attacks Job's Health
 * Sons of God and Satan present themselves to God.
 * God and Satan have a similar discussion as Ch1, except Satan says if Job's health is attacked, he'll curse God then. God gives Satan permission to inflict Job, but not to kill him.
 * Satan inflicts Job with sores.
 * Job doesn't curse God, despite his wife encouraging him to.
 * Job says to her _"Shall we receive good from God, and shall we not receive evil?"_
 
-READ REST OF CHAPTER 2
+Job's Friends Visit
+* Job's three friends: Eliphaz, Bildad, and Zophar hear of Job's misfortune and visit him.
+* The friends sit with Job 7 days and nights without speaking to Job, due to Job's misery.
+
+### Tuesday, April 14th, 2026
+
 
