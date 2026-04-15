@@ -126,6 +126,8 @@ Job's Friends Visit
 ### Tuesday, April 14th, 2026
 Job Ch 3 - Job curses his birth and mopes.
 
-
+### Wednesday, April 15th, 2026
+Job Ch 4 - Eliphaz Speaks
+* Interesting Eliphaz says in verse 18 that God charges his angels with error.
 
 
