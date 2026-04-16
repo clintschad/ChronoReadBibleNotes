@@ -128,6 +128,14 @@ Job Ch 3 - Job curses his birth and mopes.
 
 ### Wednesday, April 15th, 2026
 Job Ch 4 - Eliphaz Speaks
-* Interesting Eliphaz says in verse 18 that God charges his angels with error.
+* Interesting that Eliphaz says in verse 18 that God charges his angels with error.
+
+### Thursday, April 16th, 2026
+Job Ch 5 - Eliphaz Continues Speaking
+* Verse 1: :to which of the _holy ones_ will you turn." Who are the holy ones? Angels or human followers of God?
+* Eliphaz tells Job
+      - to seek God,
+      - how much more powerful God is than ma,
+      - and that it is a blessing to be reprimanded by God.
 
 
