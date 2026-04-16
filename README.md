@@ -132,7 +132,7 @@ Job Ch 4 - Eliphaz Speaks
 
 ### Thursday, April 16th, 2026
 Job Ch 5 - Eliphaz Continues Speaking
-* Verse 1: "to which of the _holy ones_ will you turn." Who are the holy ones? Angels or human followers of God?
+* Verse 1: "to which of the _holy ones_ will you turn?" Who are the holy ones? Angels or human followers of God?
 * Eliphaz tells Job
       - to seek God,
       - how much more powerful God is than ma,
