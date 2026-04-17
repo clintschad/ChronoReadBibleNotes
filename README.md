@@ -137,5 +137,12 @@ Job Ch 5 - Eliphaz Continues Speaking
       - to seek God,\
       - how much more powerful God is than man,\
       - and that it is a blessing to be reprimanded by God.
+* According to this archaeology Bible, the Hebrew word for "Almighty" (shadday) occurs mostly in Job and a few other places in the Bible. Similar words like it have been found outside the Bible, which means it may have been a generic term for god or gods.
 
+### Friday, April 17th, 2026
+Job Ch 6 - Job says he's done nothing wrong
+* Verse 6 - "juice of the _marrow_". This Bible states the Hebrew word is uncertain.
+* Verse 7 - this Bible states the Hebrew here is uncertain.
+* Verse 10 - _Holy One_. Is this God or angel?
+* Verse 12 - mentions bronze. From Bible notes, this could date this time to the Bronze age. However, even start of Iron Age (1200 BC, as iron is mentioned 5x in Job) could have bronze usage.
 
