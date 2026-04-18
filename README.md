@@ -146,3 +146,9 @@ Job Ch 6 - Job says he's done nothing wrong
 * Verse 10 - _Holy One_. Is this God or angel?
 * Verse 12 - mentions bronze. From Bible notes, this could date this time to the Bronze age. However, even start of Iron Age (1200 BC, as iron is mentioned 5x in Job) could have bronze usage.
 
+### Saturday, April 18th, 2026
+Job Ch 7 - Job says life is short and miserable
+* _Sheol_ mentioned in verse 9.
+* _watcher of mankind_ in verse 20. Is this an angel? Or directed to his friend/s?
+* Asks if the _watcher of mankind_ would pardon his transgression and take away his iniquity.
+
