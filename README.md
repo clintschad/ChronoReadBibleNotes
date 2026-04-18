@@ -149,6 +149,6 @@ Job Ch 6 - Job says he's done nothing wrong
 ### Saturday, April 18th, 2026
 Job Ch 7 - Job says life is short and miserable
 * _Sheol_ mentioned in verse 9.
-* _watcher of mankind_ in verse 20. Is this an angel? Or directed to his friend/s?
+* _watcher of mankind_ in verse 20. Is this an angel or God? Or directed to his friend/s?
 * Asks if the _watcher of mankind_ would pardon his transgression and take away his iniquity.
 
