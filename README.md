@@ -152,3 +152,13 @@ Job Ch 7 - Job says life is short and miserable
 * _watcher of mankind_ in verse 20. Is this an angel or God? Or directed to his friend/s?
 * Asks if the _watcher of mankind_ would pardon his transgression and take away his iniquity.
 
+### Monday, April 20th, 2026
+Job Ch 8 - Bildad tells Job to seek God
+* In verse 4, Bildad implies Job's children were killed due to something they did wrong against God.
+* Man's life is short.
+* The man who forgets God is ultimately weak.
+* God will not reject an upright man who seeks him and will bless him.
+
+
+
+
