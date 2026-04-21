@@ -159,6 +159,11 @@ Job Ch 8 - Bildad tells Job to seek God
 * The man who forgets God is ultimately weak.
 * God will not reject an upright man who seeks him and will bless him.
 
-
-
+### Tuesday, April 21st, 2026
+Job Ch 9 - Though innocent, Job speaking out against God might bring upon him punishment
+* Verse 3 - _contend with him_, similar phrasing when Jacob wrestles with God in Genesis.
+* Verse 4 - God is _wise in heart and mighty in strength_
+* Verse 9 - mentions the stars _the Bear, Orion, and the Pleidaes_.
+* Verse 9 - what are the _chambers of the south_?
+* Verse 10 - Rahab is mentioned. Apparently the Hebrew here is different from the one in Joshua 2.
 
