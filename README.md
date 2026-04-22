@@ -167,3 +167,6 @@ Job Ch 9 - Though innocent, Job speaking out against God might bring upon him pu
 * Verse 9 - what are the _chambers of the south_?
 * Verse 10 - Rahab is mentioned. Apparently the Hebrew here is different from the one in Joshua 2.
 
+### Wednesday, April 22nd, 2026
+Job Ch 10 - Job says God looks for guilt though he's innocent
+* Verse 20 - _land of darkness and deep shadow_ - is this their afterlife, Sheol?
