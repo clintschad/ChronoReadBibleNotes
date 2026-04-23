@@ -170,3 +170,7 @@ Job Ch 9 - Though innocent, Job speaking out against God might bring upon him pu
 ### Wednesday, April 22nd, 2026
 Job Ch 10 - Job says God looks for guilt though he's innocent
 * Verse 20 - _land of darkness and deep shadow_ - is this their afterlife, Sheol?
+
+### Thursday, April 23rd, 2026
+Job Ch 11 - Zophar tells Job to repent of his wrongdoing and turn to God
+* Verse 8 - Sheol is mentioned.
