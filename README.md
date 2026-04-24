@@ -174,3 +174,7 @@ Job Ch 10 - Job says God looks for guilt though he's innocent
 ### Thursday, April 23rd, 2026
 Job Ch 11 - Zophar tells Job to repent of his wrongdoing and turn to God
 * Verse 8 - Sheol is mentioned.
+
+### Friday, April 24th, 2026
+Job Ch 12 - Job says that God can make anyone who is great into something small
+
