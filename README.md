@@ -178,3 +178,7 @@ Job Ch 11 - Zophar tells Job to repent of his wrongdoing and turn to God
 ### Friday, April 24th, 2026
 Job Ch 12 - Job says that God can make anyone who is great into something small
 
+### Monday, April 27th, 2026
+Job Ch 13 - Job maintains his innocence
+- Job says his friends speak falsely for God
+- Job says if he's guilty, why would he plead with God since he'd only bring judgment on himself.
