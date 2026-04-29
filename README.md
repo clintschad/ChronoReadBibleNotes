@@ -196,3 +196,4 @@ Job Ch 15 - Eliphaz asks if Job is wiser than them
 ## Misc Things to Think About
 * Is the council of God consistent throughout the Bible?
 * Are other gods mentioned and treated the same throughout the Bible?
+* Is the concept of the afterlife consistent throughout the Bible?
