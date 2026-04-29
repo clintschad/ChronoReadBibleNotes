@@ -186,3 +186,13 @@ Job Ch 13 - Job maintains his innocence
 ### Tuesday, April 28th, 2026
 Job Ch 14 - Job says man's lifetime is short
 - Sheol in verse 13
+
+### Wednesday, April 29th, 2026
+Job Ch 15 - Eliphaz asks if Job is wiser than them
+* Interestingly, Eliphaz says one of them is older than Job's father.
+* The man who doesn't heed God is small, nearly worthless.
+
+
+## Misc Things to Think About
+* Is the council of God consistent throughout the Bible?
+* Are other gods mentioned and treated the same throughout the Bible?
