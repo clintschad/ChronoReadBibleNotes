@@ -192,6 +192,9 @@ Job Ch 15 - Eliphaz asks if Job is wiser than them
 * Interestingly, Eliphaz says one of them is older than Job's father.
 * The man who doesn't heed God is small, nearly worthless.
 
+### Thursday, April 30th, 2026
+Job Ch 16 - Job says he's innocent but God has crushed him
+* Verse 19 - _my witness is in heaven_. Who is this? God, Jesus, angels?
 
 ## Misc Things to Think About
 * Is the council of God consistent throughout the Bible?
