@@ -196,6 +196,9 @@ Job Ch 15 - Eliphaz asks if Job is wiser than them
 Job Ch 16 - Job says he's innocent but God has crushed him
 * Verse 19 - _my witness is in heaven_. Who is this? God, Jesus, angels?
 
+### Friday, May 1st, 2026
+Job Ch 17 - Job says he has no hope and is ready for the grave (Sheol)
+
 ## Misc Things to Think About
 * Is the council of God consistent throughout the Bible?
 * Are other gods mentioned and treated the same throughout the Bible?
