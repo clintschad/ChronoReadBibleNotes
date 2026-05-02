@@ -199,6 +199,10 @@ Job Ch 16 - Job says he's innocent but God has crushed him
 ### Friday, May 1st, 2026
 Job Ch 17 - Job says he has no hope and is ready for the grave (Sheol)
 
+### Saturday, May 2nd, 2023
+Job Ch 18 - Job speaks of the plight of the wicked
+* Verses 13-14. Who are the _firstborn of death_ and the _king of terrors_?
+
 ## Misc Things to Think About
 * Is the council of God consistent throughout the Bible?
 * Are other gods mentioned and treated the same throughout the Bible?
