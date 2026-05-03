@@ -12,28 +12,32 @@ Saturday, April 11th, 2026
 * Bandits steal oxen and natural weather destroys the rest of Job's livestock and his children.
 * Job grieves greatly, but does not curse God.
 
-## Chapter 2 - Satan Attacks Job's Health and Job's Friends Visit
+## Chapter 2
+### Satan Attacks Job's Health and Job's Friends Visit
 Monday, April 13th, 2026
 
-### Satan Attacks Job's Health
+#### Satan Attacks Job's Health
 * Sons of God and Satan present themselves to God.
 * God and Satan have a similar discussion as Ch1, except Satan says if Job's health is attacked, he'll curse God then. God gives Satan permission to inflict Job, but not to kill him.
 * Satan inflicts Job with sores.
 * Job doesn't curse God, despite his wife encouraging him to.
 * Job says to her _"Shall we receive good from God, and shall we not receive evil?"_
 
-### Job's Friends Visit
+#### Job's Friends Visit
 * Job's three friends: Eliphaz, Bildad, and Zophar hear of Job's misfortune and visit him.
 * The friends sit with Job 7 days and nights without speaking to Job, due to Job's misery.
 
-## Chapter 3 - Job curses his birth and mopes
+## Chapter 3
+### Job curses his birth and mopes
 Tuesday, April 14th, 2026
 
-## Chapter 4 - Eliphaz Speaks
+## Chapter 4
+### Eliphaz Speaks
 Wednesday, April 15th, 2026
 * Interesting that Eliphaz says in verse 18 that God charges his angels with error.
 
-## Chapter 5 - Eliphaz Continues Speaking
+## Chapter 5
+### Eliphaz Continues Speaking
 Thursday, April 16th, 2026
 * Verse 1: "to which of the _holy ones_ will you turn?" Who are the holy ones? Angels or human followers of God?
 * Eliphaz tells Job\
@@ -42,27 +46,31 @@ Thursday, April 16th, 2026
       - and that it is a blessing to be reprimanded by God.
 * According to this archaeology Bible, the Hebrew word for "Almighty" (shadday) occurs mostly in Job and a few other places in the Bible. Similar words like it have been found outside the Bible, which means it may have been a generic term for god or gods.
 
-## Chapter 6 - Job says he's done nothing wrong
+## Chapter 6
+### Job says he's done nothing wrong
 Friday, April 17th, 2026
 * Verse 6 - "juice of the _marrow_". This Bible states the Hebrew word is uncertain.
 * Verse 7 - this Bible states the Hebrew here is uncertain.
 * Verse 10 - _Holy One_. Is this God or angel?
 * Verse 12 - mentions bronze. From Bible notes, this could date this time to the Bronze age. However, even start of Iron Age (1200 BC, as iron is mentioned 5x in Job) could have bronze usage.
 
-## Chapter 7 - Job says life is short and miserable
+## Chapter 7
+### Job says life is short and miserable
 Saturday, April 18th, 2026
 * _Sheol_ mentioned in verse 9.
 * _watcher of mankind_ in verse 20. Is this an angel or God? Or directed to his friend/s?
 * Asks if the _watcher of mankind_ would pardon his transgression and take away his iniquity.
 
-## Chapter 8 - Bildad tells Job to seek God
+## Chapter 8
+### Bildad tells Job to seek God
 Monday, April 20th, 2026
 * In verse 4, Bildad implies Job's children were killed due to something they did wrong against God.
 * Man's life is short.
 * The man who forgets God is ultimately weak.
 * God will not reject an upright man who seeks him and will bless him.
 
-## Chapter 9 - Though innocent, Job speaking out against God might bring upon him punishment
+## Chapter 9
+### Though innocent, Job speaking out against God might bring upon him punishment
 Tuesday, April 21st, 2026
 * Verse 3 - _contend with him_, similar phrasing when Jacob wrestles with God in Genesis.
 * Verse 4 - God is _wise in heart and mighty in strength_
@@ -70,42 +78,52 @@ Tuesday, April 21st, 2026
 * Verse 9 - what are the _chambers of the south_?
 * Verse 10 - Rahab is mentioned. Apparently the Hebrew here is different from the one in Joshua 2.
 
-## Chapter 10 - Job says God looks for guilt though he's innocent
+## Chapter 10
+### Job says God looks for guilt though he's innocent
 Wednesday, April 22nd, 2026
 * Verse 20 - _land of darkness and deep shadow_ - is this their afterlife, Sheol?
 
-## Chapter 11 - Zophar tells Job to repent of his wrongdoing and turn to God
+## Chapter 11
+### Zophar tells Job to repent of his wrongdoing and turn to God
 Thursday, April 23rd, 2026
 * Verse 8 - Sheol is mentioned.
 
-## Chapter 12 - Job says that God can make anyone who is great into something small
+## Chapter 12
+### Job says that God can make anyone who is great into something small
 Friday, April 24th, 2026
 
-## Chapter 13 - Job maintains his innocence
+## Chapter 13
+### Job maintains his innocence
 Monday, April 27th, 2026
 - Job says his friends speak falsely for God
 - Job says if he's guilty, why would he plead with God since he'd only bring judgment on himself.
 
-## Chapter 14 - Job says man's lifetime is short
+## Chapter 14
+### Job says man's lifetime is short
 Tuesday, April 28th, 2026
 - Sheol in verse 13
 
-## Chapter 15 - Eliphaz asks if Job is wiser than them
+## Chapter 15
+### Eliphaz asks if Job is wiser than them
 Wednesday, April 29th, 2026
 * Interestingly, Eliphaz says one of them is older than Job's father.
 * The man who doesn't heed God is small, nearly worthless.
 
-## Chapter 16 - Job says he's innocent but God has crushed him
+## Chapter 16
+### Job says he's innocent but God has crushed him
 Thursday, April 30th, 2026
 * Verse 19 - _my witness is in heaven_. Who is this? God, Jesus, angels?
 
-## Chapter 17 - Job says he has no hope and is ready for the grave (Sheol)
+## Chapter 17
+### Job says he has no hope and is ready for the grave (Sheol)
 Friday, May 1st, 2026
 
-## Chapter 18 - Job speaks of the plight of the wicked
+## Chapter 18
+### Job speaks of the plight of the wicked
 Saturday, May 2nd, 2026
 * Verses 13-14. Who are the _firstborn of death_ and the _king of terrors_?
 
-## Chapter 19 - Job says God is tormenting his life
+## Chapter 19
+### Job says God is tormenting his life
 Sunday, May 3rd, 2026
 * Verse 25 - _I know that my Redeemer lives_. So Job knows about Jesus? Or is this God the Father?
