@@ -127,3 +127,9 @@ Saturday, May 2nd, 2026
 ### Job says God is tormenting his life
 Sunday, May 3rd, 2026
 * Verse 25 - _I know that my Redeemer lives_. So Job knows about Jesus? Or is this God the Father?
+
+## Chapter 20
+### Zophar describes the short initial prosperity of the wicked and their ultimate miserable fate
+Monday, May 4th, 2026
+* Verses 14 and 16 - cobras mentioned
+* Verse 26 - darkness and fire as the fate of the wicked man. Is this hell or Sheol?
