@@ -133,3 +133,8 @@ Sunday, May 3rd, 2026
 Monday, May 4th, 2026
 * Verses 14 and 16 - cobras mentioned
 * Verse 26 - darkness and fire as the fate of the wicked man. Is this hell or Sheol?
+
+## Chapter 21
+### Job speaks: the wicked do prosper
+Tuesday, May 5th, 2026
+* Verse 13 - The wicked peacefully go down to Sheol.
