@@ -138,3 +138,8 @@ Monday, May 4th, 2026
 ### Job speaks: the wicked do prosper
 Tuesday, May 5th, 2026
 * Verse 13 - The wicked peacefully go down to Sheol.
+
+## Chapter 22
+### Eliphaz tells Job he's done wrong and to turn to God
+Wednesday, May 6th, 2026
+* Verse 24: _gold of [Ophir](https://en.wikipedia.org/wiki/Ophir)_. Ophir is a descendant of Shem mentioned in the Table of Nations chapter in Genesis (chapter 10).
