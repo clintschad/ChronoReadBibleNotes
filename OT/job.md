@@ -143,3 +143,9 @@ Tuesday, May 5th, 2026
 ### Eliphaz tells Job he's done wrong and to turn to God
 Wednesday, May 6th, 2026
 * Verse 24: _gold of [Ophir](https://en.wikipedia.org/wiki/Ophir)_. Ophir is a descendant of Shem mentioned in the Table of Nations chapter in Genesis (chapter 10).
+
+## Chapter 23
+### Job: God will judge him and find him innocent
+Thursday, May 7th, 2026
+* Why are all the _hims_ in this chapter lower case?
+
