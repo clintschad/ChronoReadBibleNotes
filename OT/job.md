@@ -150,6 +150,6 @@ Thursday, May 7th, 2026
 * Why are all the _hims_ in this chapter lower case?
 
 ## Chapter 24
-### Job continues: God doesn't seem to judge and punish the wicked.
+### Job continues: God doesn't seem to judge and punish the wicked
 Friday, May 8th, 2026
 * Sheol mentioned in verse 19.
