@@ -153,3 +153,15 @@ Thursday, May 7th, 2026
 ### Job continues: God doesn't seem to judge and punish the wicked
 Friday, May 8th, 2026
 * Sheol mentioned in verse 19.
+
+## Chapter 25
+### Bildad: Man cannot be innocent before God
+Saturday, May 9th, 2026
+* asdfl
+
+## Chapter 26
+### Job: we know little of God's power
+Saturday, May 9th, 2026
+* Sheol and [Abaddon](https://en.wikipedia.org/wiki/Abaddon) appear in verse 6.
+* Rahab in verse 12 could be an [ancient sea monster](https://en.wikipedia.org/wiki/Rahab_(mythology)).
+
