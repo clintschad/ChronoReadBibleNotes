@@ -157,7 +157,7 @@ Friday, May 8th, 2026
 ## Chapter 25
 ### Bildad: Man cannot be innocent before God
 Saturday, May 9th, 2026
-* asdfl
+* Short chapter (6 verses)
 
 ## Chapter 26
 ### Job: we know little of God's power
