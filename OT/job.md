@@ -55,7 +55,7 @@ Friday, April 17th, 2026
 * Verse 12 - mentions bronze. From Bible notes, this could date this time to the Bronze age. However, even start of Iron Age (1200 BC, as iron is mentioned 5x in Job) could have bronze usage.
 
 ## Chapter 7
-### Job says life is short and miserable
+### Job: life is short and miserable
 Saturday, April 18th, 2026
 * _Sheol_ mentioned in verse 9.
 * _watcher of mankind_ in verse 20. Is this an angel or God? Or directed to his friend/s?
@@ -70,7 +70,7 @@ Monday, April 20th, 2026
 * God will not reject an upright man who seeks him and will bless him.
 
 ## Chapter 9
-### Though innocent, Job speaking out against God might bring upon him punishment
+### Job: Speaking out against God might bring punishment upon himself
 Tuesday, April 21st, 2026
 * Verse 3 - _contend with him_, similar phrasing when Jacob wrestles with God in Genesis.
 * Verse 4 - God is _wise in heart and mighty in strength_
@@ -79,17 +79,17 @@ Tuesday, April 21st, 2026
 * Verse 10 - Rahab is mentioned. Apparently the Hebrew here is different from the one in Joshua 2.
 
 ## Chapter 10
-### Job says God looks for guilt though he's innocent
+### Job: God looks for guilt though he's innocent
 Wednesday, April 22nd, 2026
 * Verse 20 - _land of darkness and deep shadow_ - is this their afterlife, Sheol?
 
 ## Chapter 11
-### Zophar tells Job to repent of his wrongdoing and turn to God
+### Zophar: Job must repent of his wrongdoing and turn to God
 Thursday, April 23rd, 2026
 * Verse 8 - Sheol is mentioned.
 
 ## Chapter 12
-### Job says that God can make anyone who is great into something small
+### Job: God can make anyone small
 Friday, April 24th, 2026
 
 ## Chapter 13
@@ -99,23 +99,23 @@ Monday, April 27th, 2026
 - Job says if he's guilty, why would he plead with God since he'd only bring judgment on himself.
 
 ## Chapter 14
-### Job says man's lifetime is short
+### Job: Man's life is short
 Tuesday, April 28th, 2026
 - Sheol in verse 13
 
 ## Chapter 15
-### Eliphaz asks if Job is wiser than them
+### Eliphaz: Is Job wiser than them?
 Wednesday, April 29th, 2026
 * Interestingly, Eliphaz says one of them is older than Job's father.
 * The man who doesn't heed God is small, nearly worthless.
 
 ## Chapter 16
-### Job says he's innocent but God has crushed him
+### Job: he's innocent but God has crushed him
 Thursday, April 30th, 2026
 * Verse 19 - _my witness is in heaven_. Who is this? God, Jesus, angels?
 
 ## Chapter 17
-### Job says he has no hope and is ready for the grave (Sheol)
+### Job: He has no hope and is ready for the grave
 Friday, May 1st, 2026
 
 ## Chapter 18
@@ -124,23 +124,23 @@ Saturday, May 2nd, 2026
 * Verses 13-14. Who are the _firstborn of death_ and the _king of terrors_?
 
 ## Chapter 19
-### Job says God is tormenting his life
+### Job: God is tormenting his life
 Sunday, May 3rd, 2026
 * Verse 25 - _I know that my Redeemer lives_. So Job knows about Jesus? Or is this God the Father?
 
 ## Chapter 20
-### Zophar describes the short initial prosperity of the wicked and their ultimate miserable fate
+### Zophar: The wicked prosper at first but ultimately suffer
 Monday, May 4th, 2026
 * Verses 14 and 16 - cobras mentioned
 * Verse 26 - darkness and fire as the fate of the wicked man. Is this hell or Sheol?
 
 ## Chapter 21
-### Job speaks: the wicked do prosper
+### Job: The wicked do prosper
 Tuesday, May 5th, 2026
 * Verse 13 - The wicked peacefully go down to Sheol.
 
 ## Chapter 22
-### Eliphaz tells Job he's done wrong and to turn to God
+### Eliphaz: Job has done wrong and needs to turn to God
 Wednesday, May 6th, 2026
 * Verse 24: _gold of [Ophir](https://en.wikipedia.org/wiki/Ophir)_. Ophir is a descendant of Shem mentioned in the Table of Nations chapter in Genesis (chapter 10).
 
@@ -150,7 +150,7 @@ Thursday, May 7th, 2026
 * Why are all the _hims_ in this chapter lower case?
 
 ## Chapter 24
-### Job continues: God doesn't seem to judge and punish the wicked
+### Job: God doesn't seem to judge and punish the wicked
 Friday, May 8th, 2026
 * Sheol mentioned in verse 19.
 
@@ -160,7 +160,7 @@ Saturday, May 9th, 2026
 * Short chapter (6 verses)
 
 ## Chapter 26
-### Job: we know little of God's power
+### Job: We know little of God's power
 Saturday, May 9th, 2026
 * Sheol and [Abaddon](https://en.wikipedia.org/wiki/Abaddon) appear in verse 6.
 * Rahab in verse 12 could be an [ancient sea monster](https://en.wikipedia.org/wiki/Rahab_(mythology)).
