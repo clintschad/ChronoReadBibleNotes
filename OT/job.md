@@ -110,7 +110,7 @@ Wednesday, April 29th, 2026
 * The man who doesn't heed God is small, nearly worthless.
 
 ## Chapter 16
-### Job: he's innocent but God has crushed him
+### Job: He's innocent but God has crushed him
 Thursday, April 30th, 2026
 * Verse 19 - _my witness is in heaven_. Who is this? God, Jesus, angels?
 
