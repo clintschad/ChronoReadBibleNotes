@@ -55,7 +55,7 @@ Friday, April 17th, 2026
 * Verse 12 - mentions bronze. From Bible notes, this could date this time to the Bronze age. However, even start of Iron Age (1200 BC, as iron is mentioned 5x in Job) could have bronze usage.
 
 ## Chapter 7
-### Job: life is short and miserable
+### Job: Life is short and miserable
 Saturday, April 18th, 2026
 * _Sheol_ mentioned in verse 9.
 * _watcher of mankind_ in verse 20. Is this an angel or God? Or directed to his friend/s?
