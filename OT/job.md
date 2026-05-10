@@ -165,3 +165,6 @@ Saturday, May 9th, 2026
 * Sheol and [Abaddon](https://en.wikipedia.org/wiki/Abaddon) appear in verse 6.
 * Rahab in verse 12 could be an [ancient sea monster](https://en.wikipedia.org/wiki/Rahab_(mythology)).
 
+## Chapter 27
+### Job: The prosperity of the wicked will end
+Sunday, May 10th, 2026
