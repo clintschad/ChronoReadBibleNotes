@@ -168,3 +168,12 @@ Saturday, May 9th, 2026
 ## Chapter 27
 ### Job: The prosperity of the wicked will end
 Sunday, May 10th, 2026
+
+## Chapter 28
+### Job: Wisdom only found in fearing the Lord
+Monday, May 11th, 2026
+* Talks about mining and building dams.
+* Gold, silver, iron, copper, onyx, sapphire mentioned. Coral also mentioned.
+* Ophir and Ethiopia mentioned.
+* Abbadon mentioned.
+* Fear of the Lord is wisdom; turning away from evil is understanding.
