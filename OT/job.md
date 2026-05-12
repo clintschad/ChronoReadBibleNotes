@@ -177,3 +177,9 @@ Monday, May 11th, 2026
 * Ophir and Ethiopia mentioned.
 * Abbadon mentioned.
 * Fear of the Lord is wisdom; turning away from evil is understanding.
+
+## Chapter 29
+### Job reflects on his past prosperity and good standing
+Tuesday, May 12th, 2026
+* Verse 7 - Job had good standing and may have had a position of authority
+
