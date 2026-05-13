@@ -170,7 +170,7 @@ Saturday, May 9th, 2026
 Sunday, May 10th, 2026
 
 ## Chapter 28
-### Job: Wisdom only found in fearing the Lord
+### Job: Wisdom only found in fear of the Lord
 Monday, May 11th, 2026
 * Talks about mining and building dams.
 * Gold, silver, iron, copper, onyx, sapphire mentioned. Coral also mentioned.
@@ -183,3 +183,6 @@ Monday, May 11th, 2026
 Tuesday, May 12th, 2026
 * Verse 7 - Job had good standing and may have had a position of authority
 
+## Chapter 30
+### Job: Turning to God, he's still wretched
+Wednesday, May 13th, 2026
