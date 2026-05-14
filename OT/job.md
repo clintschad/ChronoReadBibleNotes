@@ -186,3 +186,8 @@ Tuesday, May 12th, 2026
 ## Chapter 30
 ### Job: Turning to God, he's still wretched
 Wednesday, May 13th, 2026
+
+## Chapter 31
+### Job says he's been a faithful spouse and generous to others
+Thursday, May 14th, 2026
+* Verse 12: _fire that consumes as far as Abaddon_
