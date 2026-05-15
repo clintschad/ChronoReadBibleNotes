@@ -191,3 +191,9 @@ Wednesday, May 13th, 2026
 ### Job says he's been a faithful spouse and generous to others
 Thursday, May 14th, 2026
 * Verse 12: _fire that consumes as far as Abaddon_
+
+## Chapter 32
+### Elihu has waited for his turn to speak
+Friday, May 15th, 2026
+* [Elihu](https://en.wikipedia.org/wiki/Elihu_(biblical_figure)) may be from the line of Abraham. Possible reference in Gen 22:20.
+* Elihu is the youngest of Job's group, Job included (verse 4).
