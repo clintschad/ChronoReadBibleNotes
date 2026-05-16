@@ -197,3 +197,14 @@ Thursday, May 14th, 2026
 Friday, May 15th, 2026
 * [Elihu](https://en.wikipedia.org/wiki/Elihu_(biblical_figure)) may be from the line of Abraham. Possible reference in Gen 22:20.
 * Elihu is the youngest of Job's group, Job included (verse 4).
+
+## Chapter 33
+### Elihu tells Job he's wrong and what God's part is in Job misery
+Saturday, May 16th, 2026
+* Verse 4 - _Spirit of God_ and _breath of the Almighty_. Assumed references to the Genesis creation of man account.
+* Verse 6 - _pinched off from a piece of clay_ - Assumed creation of man reference.
+* Verse 23 - mention of angel. Interesting phrase _one of the thousand_.
+* Elihu paraphrases Job asking why God doesn't answer man.
+* According to Elihu, God commuicates to man via dreams and physical pain.
+* Elihu says God allows man to fall into despair and then saves him when man prays to him.
+* Elihu says God does this to bring vigor to man.
