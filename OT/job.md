@@ -199,7 +199,7 @@ Friday, May 15th, 2026
 * Elihu is the youngest of Job's group, Job included (verse 4).
 
 ## Chapter 33
-### Elihu tells Job he's wrong and what God's part is in Job misery
+### Elihu tells Job he's wrong and what God's role is in his misery
 Saturday, May 16th, 2026
 * Verse 4 - _Spirit of God_ and _breath of the Almighty_. Assumed references to the Genesis creation of man account.
 * Verse 6 - _pinched off from a piece of clay_ - Assumed creation of man reference.
