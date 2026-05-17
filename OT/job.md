@@ -202,9 +202,16 @@ Friday, May 15th, 2026
 ### Elihu tells Job he's wrong and what God's role is in his misery
 Saturday, May 16th, 2026
 * Verse 4 - _Spirit of God_ and _breath of the Almighty_. Assumed references to the Genesis creation of man account.
-* Verse 6 - _pinched off from a piece of clay_ - Assumed creation of man reference.
+* Verse 6 - _pinched off from a piece of clay_. Aside from the Biblical account, this could be a reference to how the Egyptian potter god [Khnum](https://en.wikipedia.org/wiki/Khnum) created humans.
 * Verse 23 - mention of angel. Interesting phrase _one of the thousand_.
 * Elihu paraphrases Job asking why God doesn't answer man.
 * According to Elihu, God commuicates to man via dreams and physical pain.
 * Elihu says God allows man to fall into despair and then saves him when man prays to him.
 * Elihu says God does this to bring vigor to man.
+
+## Chapter 34
+### Elihu tells Job that God rewards man according to his deeds, hence Job's miserable state
+Sunday, May 17th, 2026
+
+
+
