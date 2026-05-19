@@ -213,5 +213,10 @@ Saturday, May 16th, 2026
 ### Elihu tells Job that God rewards man according to his deeds, hence Job's miserable state
 Sunday, May 17th, 2026
 
+## Chapter 35
+### Elihu tells Job he doesn't know what he's talking about
+Tuesday, May 19th, 2025
+* Verse 8 - _son of man_
+* Verse 10 - _God my Maker_
 
 
