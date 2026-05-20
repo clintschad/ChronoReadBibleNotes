@@ -197,6 +197,7 @@ Thursday, May 14th, 2026
 Friday, May 15th, 2026
 * [Elihu](https://en.wikipedia.org/wiki/Elihu_(biblical_figure)) may be from the line of Abraham. Possible reference in Gen 22:20.
 * Elihu is the youngest of Job's group, Job included (verse 4).
+* Elihu is not mentioned in chapter 2 when Job's friends are introduced.
 
 ## Chapter 33
 ### Elihu tells Job he's wrong and what God's role is in his misery
@@ -215,8 +216,11 @@ Sunday, May 17th, 2026
 
 ## Chapter 35
 ### Elihu tells Job he doesn't know what he's talking about
-Tuesday, May 19th, 2025
+Tuesday, May 19th, 2026
 * Verse 8 - _son of man_
 * Verse 10 - _God my Maker_
 
-
+## Chapter 36
+### Elihu to Job: Turn to the all powerful God, for the wicked will perish under Him.
+Wednesday, May 20th, 2026
+* Verse 3 - uses the term _Maker_ again
