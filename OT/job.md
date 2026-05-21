@@ -224,3 +224,8 @@ Tuesday, May 19th, 2026
 ### Elihu to Job: Turn to the all powerful God, for the wicked will perish under Him.
 Wednesday, May 20th, 2026
 * Verse 3 - uses the term _Maker_ again
+
+## Chapter 37
+### Elihu to Job: Be humble and consider God's power over nature
+Thursday, May 21st, 2026
+
