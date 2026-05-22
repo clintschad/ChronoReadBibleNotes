@@ -229,3 +229,11 @@ Wednesday, May 20th, 2026
 ### Elihu to Job: Be humble and consider God's power over nature
 Thursday, May 21st, 2026
 
+## Chapter 38
+### God asks Job rhetorical questions regarding his power
+Friday, May 22nd, 2026
+* Verses 4 and 5 - _foundation of the earth, its measurements_
+* Verse 7 - _sons of God_
+* Verse 16 - _springs of the sea_. Also, _recesses of the deep_. Ocean trenches?
+* Verses 21 and 22 - _storehouses of snow and hail_
+* Verses 31 and 32 - Pleiades, Orion, [Mazzaroth](https://en.wikipedia.org/wiki/Mazzaroth)(may be a generic word for constellation), _the Bear_ (possibly referring to Ursa Major).
