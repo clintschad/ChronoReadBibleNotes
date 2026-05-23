@@ -237,3 +237,9 @@ Friday, May 22nd, 2026
 * Verse 16 - _springs of the sea_. Also, _recesses of the deep_. Ocean trenches?
 * Verses 21 and 22 - _storehouses of snow and hail_
 * Verses 31 and 32 - Pleiades, Orion, [Mazzaroth](https://en.wikipedia.org/wiki/Mazzaroth) (may be a generic word for constellation), _the Bear_ (possibly referring to Ursa Major).
+
+## Chapter 39
+### God asks Job if he's given animals certain features or understands them
+Saturuday, May23rd, 2026
+* _manger_ (verse 9)
+* Chapter mentions the following animals: goat, deer, cow (calf), donkey, ox, ostrich, horse, hawk.
