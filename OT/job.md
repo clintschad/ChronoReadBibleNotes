@@ -240,6 +240,6 @@ Friday, May 22nd, 2026
 
 ## Chapter 39
 ### God asks Job if he's given animals certain features or understands them
-Saturuday, May23rd, 2026
+Saturday, May 23rd, 2026
 * _manger_ (verse 9)
 * Chapter mentions the following animals: goat, deer, cow (calf), donkey, ox, ostrich, horse, hawk.
