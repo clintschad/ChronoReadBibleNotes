@@ -243,3 +243,8 @@ Friday, May 22nd, 2026
 Saturday, May 23rd, 2026
 * _manger_ (verse 9)
 * Chapter mentions the following animals: goat, deer, cow (calf), donkey, ox, ostrich, horse, hawk.
+
+## Chapter 40
+### God continues asking Job rhetorical questions to show him his fragility in comparison
+Sunday, May 24th, 2025
+* Verse 15 - [_Behemoth_](https://en.wikipedia.org/wiki/Behemoth), a large animal of unknown identity
