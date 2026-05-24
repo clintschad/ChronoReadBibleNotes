@@ -246,5 +246,5 @@ Saturday, May 23rd, 2026
 
 ## Chapter 40
 ### God continues asking Job rhetorical questions to show him his fragility in comparison
-Sunday, May 24th, 2025
+Sunday, May 24th, 2026
 * Verse 15 - [_Behemoth_](https://en.wikipedia.org/wiki/Behemoth), a large animal of unknown identity
