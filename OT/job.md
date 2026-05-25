@@ -248,3 +248,9 @@ Saturday, May 23rd, 2026
 ### God continues asking Job rhetorical questions to show him his fragility in comparison
 Sunday, May 24th, 2026
 * Verse 15 - [_Behemoth_](https://en.wikipedia.org/wiki/Behemoth), a large animal of unknown identity
+
+## Chapter 41
+### God describes the sea monster Leviathon
+Monday, May 25th, 2026
+* Verse 1 - [_Leviathon_](https://en.wikipedia.org/wiki/Leviathan)
+* Verse 34 - _sons of pride_
