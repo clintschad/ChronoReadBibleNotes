@@ -254,3 +254,11 @@ Sunday, May 24th, 2026
 Monday, May 25th, 2026
 * Verse 1 - [_Leviathon_](https://en.wikipedia.org/wiki/Leviathan)
 * Verse 34 - _sons of pride_
+
+## Chapter 42
+### Job repents and God restores his properity
+Tuesday, May 26th, 2026
+* Job repents. For what, I'm not sure -- his questioning of God?
+* The LORD tells Eliphaz to have Job pray for his friends and offer sacrifices because they mispoke about Him.
+* The LORD blesses Job and he ends up more prosperous than before everything was taken away.
+* Verse 11 - the Hebrew term for the money Job's siblings give him is [_qesitah_](https://en.wikipedia.org/wiki/Kesitah), an unknown monetary unit.
