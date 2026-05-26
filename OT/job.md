@@ -262,3 +262,4 @@ Tuesday, May 26th, 2026
 * The LORD tells Eliphaz to have Job pray for his friends and offer sacrifices because they mispoke about Him.
 * The LORD blesses Job and he ends up more prosperous than before everything was taken away.
 * Verse 11 - the Hebrew term for the money Job's siblings give him is [_qesitah_](https://en.wikipedia.org/wiki/Kesitah), an unknown monetary unit.
+* Verse 16 - Job lives 140 more years. Perhaps Job lived shortly after the Flood where lifespans were still a bit longer.
