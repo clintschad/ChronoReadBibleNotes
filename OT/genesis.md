@@ -91,3 +91,9 @@ Wednesday-Thursday April 8th-9th, 2026
 * First lived in [Ur of the Chaldeans](https://en.wikipedia.org/wiki/Ur_of_the_Chaldees).
 * Abram's father (Terah), Abram himself, his wife Sarai, and Abram's nephew lot start traveling to Canaan, but stop and settle in [Haran](https://en.wikipedia.org/wiki/Harran).
 * Terah dies in Haran.
+
+## Chapter 12
+### Abram travels to Bethel area and Egypt
+Wednesday, May 27th, 2026
+* The LORD tells Abram to go to a land that He will show him. Abram leaves Haran and stops at Shechem, where the LORD says He will give that land to his descendents. Abram continues to Bethel. With a famine in the area, he goes to Egypt.
+* While in Egypt, Abram tells everyone that Sarai (his wife) is his sister, so they won't kill him to take her. The princes treat Abram well and give him livestock and servants. However, Pharaoh takes Sarai as his wife, and the LORD afflicts Pharaoh and his house with plagues. Pharaoh realizes what's going on, asks Abram why he did this, and tells them to leave.
