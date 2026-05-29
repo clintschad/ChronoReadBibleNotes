@@ -97,3 +97,12 @@ Wednesday-Thursday April 8th-9th, 2026
 Wednesday, May 27th, 2026
 * The LORD tells Abram to go to a land that He will show him. Abram leaves Haran and stops at [Shechem](https://en.wikipedia.org/wiki/Shechem), where the LORD says He will give that land to his descendents. Abram continues to Bethel. With a famine in the area, he goes to Egypt.
 * While in Egypt, Abram tells everyone that Sarai (his wife) is his sister, so they won't kill him to take her. The princes treat Abram well and give him livestock and servants. However, Pharaoh takes Sarai as his wife, and the LORD afflicts Pharaoh and his house with plagues. Pharaoh realizes what's going on, asks Abram why he did this, and tells them to leave.
+
+## Chapter 13
+### Abram and Lot separate: Abram settles in Canaan and Lot settles in the Jordan Valley
+Friday, May 28th, 2026
+* Verse 7 - [_Perizzites_](https://en.wikipedia.org/wiki/Perizzites) mentioned
+* Verse 10 - [_Zoar_](https://en.wikipedia.org/wiki/Zoara) mentioned
+* Verse 18 - [_Mamre_](https://en.wikipedia.org/wiki/Mamre) mentioned
+* Lot settles in the [Jordan Valley](https://en.wikipedia.org/wiki/Jordan_Valley#Religious_significance)
+* God tells Abram he'll give him all the land he can see. He settles in Mamre. 
