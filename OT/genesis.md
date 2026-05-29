@@ -100,9 +100,9 @@ Wednesday, May 27th, 2026
 
 ## Chapter 13
 ### Abram and Lot separate: Abram settles in Canaan and Lot settles in the Jordan Valley
-Friday, May 28th, 2026
+Friday, May 29th, 2026
 * Verse 7 - [_Perizzites_](https://en.wikipedia.org/wiki/Perizzites) mentioned
 * Verse 10 - [_Zoar_](https://en.wikipedia.org/wiki/Zoara) mentioned
 * Verse 18 - [_Mamre_](https://en.wikipedia.org/wiki/Mamre) mentioned
 * Lot settles in the [Jordan Valley](https://en.wikipedia.org/wiki/Jordan_Valley#Religious_significance)
-* God tells Abram he'll give him all the land he can see. He settles in Mamre. 
+* God tells Abram He'll give him all the land he can see. He settles in Mamre. 
