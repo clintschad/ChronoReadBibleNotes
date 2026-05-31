@@ -106,3 +106,32 @@ Friday, May 29th, 2026
 * Verse 18 - [_Mamre_](https://en.wikipedia.org/wiki/Mamre) mentioned
 * Lot settles in the [Jordan Valley](https://en.wikipedia.org/wiki/Jordan_Valley#Religious_significance)
 * God tells Abram He'll give him all the land he can see. He settles in Mamre. 
+
+## Chapter 14
+### Battle of Siddim
+Sunday, May 31st, 2026
+* [Battle of Siddim](https://en.wikipedia.org/wiki/Battle_of_Siddim)
+* Kings mentioned:
+    - [Amraphel](https://en.wikipedia.org/wiki/Amraphel) king of Shinar,
+    - [Arioch](https://en.wikipedia.org/wiki/Arioch) king of Ellasar,
+    - Chedorlaomer king of Elam,
+    - [Tidal](https://en.wikipedia.org/wiki/Tidal_(king)) king of Goiim,
+    - Bera king of Sodom,
+    - Birsha king of Gomorrah,
+    - Shinab king of Admah,
+    - Shemeber king of Zeboiim,
+    - king of Bela/Zoar,
+    - [Melchizadek](https://en.wikipedia.org/wiki/Melchizedek) king of [Salem](https://en.wikipedia.org/wiki/Salem_(Bible))
+* Places (in addition to the kings' locations):
+    - Valley of Siddim (the Salt Sea)
+    - En-mishpat (Kadesh)
+    - Valley of Shaveh (the King's Valley)
+* Peoples
+    - Rephaim in Ashteroth-karnaim
+    - Zuzim in Ham
+    - Emim in Shaveh-kiriathaim
+    - Horites in the hill country of Seir
+    - Amalekites
+    - Amorites in Hazaon-tamar
+* In the battle, Sodom and Gomorrah get plundered and Lot is taken captive. Abram hears about this, gathers a few hundred of his men, pursues those who captured Lot, defeats them, and reclaims all the plunder, as well as freeing Lot.
+* The king of Sodom and Melchizadek meet with Abram. Abram gives Melchizadek a tenth of everything (precursor to tithe?) and Abram returns the rest of the plunder (minus some food his men had eaten) back to the king of Sodom.
