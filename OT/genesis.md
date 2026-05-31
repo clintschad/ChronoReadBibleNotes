@@ -121,7 +121,7 @@ Sunday, May 31st, 2026
     - Shinab king of Admah,
     - Shemeber king of Zeboiim,
     - king of Bela/Zoar,
-    - [Melchizadek](https://en.wikipedia.org/wiki/Melchizedek) king of [Salem](https://en.wikipedia.org/wiki/Salem_(Bible))
+    - [Melchizadek](https://en.wikipedia.org/wiki/Melchizedek) king of [Salem](https://en.wikipedia.org/wiki/Salem_(Bible)) (not in the battle but mentioned later)
 * Places (in addition to the kings' locations):
     - Valley of Siddim (the Salt Sea)
     - En-mishpat (Kadesh)
