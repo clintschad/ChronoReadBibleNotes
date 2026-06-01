@@ -135,3 +135,10 @@ Sunday, May 31st, 2026
     - Amorites in Hazaon-tamar
 * In the battle, Sodom and Gomorrah get plundered and Lot is taken captive. Abram hears about this, gathers a few hundred of his men, pursues those who captured Lot, defeats them, and reclaims all the plunder, as well as freeing Lot.
 * The king of Sodom and Melchizadek meet with Abram. Abram gives Melchizadek a tenth of everything (precursor to tithe?) and Abram returns the rest of the plunder (minus some food his men had eaten) back to the king of Sodom.
+
+## Chapter 15
+### God promises Abram he will have many descendents and much land
+* [God appears to Abram in a vision](https://en.wikipedia.org/wiki/Covenant_of_the_pieces).
+* Abram cuts a cow, goat, ram in half. Along with these, he brings some birds to God. But they're not burnt. I suppose they just sit there because Abram drives away the birds who try to get these.
+* Verse 16 - _the iniquity of the Amorites is not yet complete_ What does God mean by this?
+* Verse 17 - _smoking fire pot and flaming torch passed between the pieces_ What does this mean?
