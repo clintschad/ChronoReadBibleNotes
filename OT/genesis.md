@@ -142,3 +142,16 @@ Sunday, May 31st, 2026
 * Abram cuts a cow, goat, ram in half. Along with these, he brings some birds to God. But they're not burnt. I suppose they just sit there because Abram drives away the birds who try to get these.
 * Verse 16 - _the iniquity of the Amorites is not yet complete_ What does God mean by this?
 * Verse 17 - _smoking fire pot and flaming torch passed between the pieces_ What does this mean?
+
+## Chapter 16
+### Sarai and Hagar
+* [Hagar](https://en.wikipedia.org/wiki/Hagar) was an Egyptian servant of Sarai's.
+* It's interesting after Hagar gives birth that initially she is the one who has contempt and not Sarai.
+* Sarai deals harshly with Hagar and she runs away. An angel appears to her in the wilderness and convinces her to return. The angel tells her she will have many descendants and her child shall be named [Ishmael](https://en.wikipedia.org/wiki/Ishmael).
+* Abram was 86 years old when Ishmael was born.
+* Places mentioned: [_Shur_](https://en.wikipedia.org/wiki/Shur_(Bible)), [_Beer-lahai-roi_](https://en.wikipedia.org/wiki/List_of_minor_biblical_places#Beer-lahai-roi), [_Kadesh_](https://en.wikipedia.org/wiki/Kadesh_(biblical)), [_Bered_](https://en.wikipedia.org/wiki/List_of_minor_biblical_places#B)
+
+
+
+
+
