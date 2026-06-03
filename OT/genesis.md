@@ -99,7 +99,7 @@ Wednesday, May 27th, 2026
 * While in Egypt, Abram tells everyone that Sarai (his wife) is his sister, so they won't kill him to take her. The princes treat Abram well and give him livestock and servants. However, Pharaoh takes Sarai as his wife, and the LORD afflicts Pharaoh and his house with plagues. Pharaoh realizes what's going on, asks Abram why he did this, and tells them to leave.
 
 ## Chapter 13
-### Abram and Lot separate: Abram settles in Canaan and Lot settles in the Jordan Valley
+### Abram settles in Canaan and Lot settles in the Jordan Valley
 Friday, May 29th, 2026
 * Verse 7 - [_Perizzites_](https://en.wikipedia.org/wiki/Perizzites) mentioned
 * Verse 10 - [_Zoar_](https://en.wikipedia.org/wiki/Zoara) mentioned
@@ -138,19 +138,32 @@ Sunday, May 31st, 2026
 
 ## Chapter 15
 ### God promises Abram he will have many descendents and much land
+Monday, June 1st, 2026
 * [God appears to Abram in a vision](https://en.wikipedia.org/wiki/Covenant_of_the_pieces).
 * Abram cuts a cow, goat, ram in half. Along with these, he brings some birds to God. But they're not burnt. I suppose they just sit there because Abram drives away the birds who try to get these.
+* _GOD_ is upper case.
 * Verse 16 - _the iniquity of the Amorites is not yet complete_ What does God mean by this?
 * Verse 17 - _smoking fire pot and flaming torch passed between the pieces_ What does this mean?
 
 ## Chapter 16
 ### Sarai and Hagar
+Tuesday, June 2nd, 2026
 * [Hagar](https://en.wikipedia.org/wiki/Hagar) was an Egyptian servant of Sarai's.
 * It's interesting after Hagar gives birth that initially she is the one who has contempt and not Sarai.
 * Sarai deals harshly with Hagar and she runs away. An angel appears to her in the wilderness and convinces her to return. The angel tells her she will have many descendants and her child shall be named [Ishmael](https://en.wikipedia.org/wiki/Ishmael).
 * Abram was 86 years old when Ishmael was born.
 * Places mentioned: [_Shur_](https://en.wikipedia.org/wiki/Shur_(Bible)), [_Beer-lahai-roi_](https://en.wikipedia.org/wiki/List_of_minor_biblical_places#Beer-lahai-roi), [_Kadesh_](https://en.wikipedia.org/wiki/Kadesh_(biblical)), [_Bered_](https://en.wikipedia.org/wiki/List_of_minor_biblical_places#B)
 
+## Chapter 17
+### Circumcision and God's promise to Abraham and his descendants
+Wednesday, June 3rd, 2026
+* God promises to Abraham that his descendants will be a great nation and He will be their God. However, male circumcision is required.
+* God changes Abram's name to Abraham and Sarai's name to Sarah.
+* God promises Abraham the great nation will come through a son that Sarah will bear in a year and to name him Isaac.
+* God's promise of the great nation will not be through Ishmael but through Isaac. However, Ishmael will be blessed and have 12 sons as princes who will also be a great nation though not as grand.
+* Abraham fullfills his part of God's promise and circumcises all the males in his house, including himself.
+* At this point, Abraham is 99 years old, Sarah is 90, and Ishmael is 13.
+* Interestingly, here _God_ is lower case, but in chapter 15 _GOD_ is upper case.
 
 
 
