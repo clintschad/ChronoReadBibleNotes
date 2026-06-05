@@ -165,6 +165,12 @@ Wednesday, June 3rd, 2026
 * At this point, Abraham is 99 years old, Sarah is 90, and Ishmael is 13.
 * Interestingly, here _God_ is lower case, but in chapter 15 _GOD_ is upper case.
 
-
+## Chapter 18
+### The LORD tells Abraham that Sarah will have a son and Abraham pleads to spare Sodom and Gomorrah
+Friday, June 5th, 2026
+* Three men appear at Abraham's tent and the text says the LORD also appeared. Using later verses, it could be two angels and the LORD, all appearing as men.
+* Abraham treats the three men well with food as the men rest.
+* The LORD tells Abraham that his wife will have a son the following year. Sarah laughs inside the tent and denies it, but God calls her out.
+* The men head toward Sodom (the two angels of Ch 19?) but the LORD stays behind, where Abraham pleads to not destroy the city if there's at least 10 righteous people in there.
 
 
