@@ -173,4 +173,17 @@ Friday, June 5th, 2026
 * The LORD tells Abraham that his wife will have a son the following year. Sarah laughs inside the tent and denies it, but God calls her out.
 * The men head toward Sodom (the two angels of Ch 19?) but the LORD stays behind, where Abraham pleads to not destroy the city if there's at least 10 righteous people in there.
 
+## Chapter 19
+### Angels rescue Lot from the destruction of Sodom and Gomorrah
+* Chapter starts off with _the two angels came to Sodom_. I assume these angels are two of the three men that previously visited Abraham before.
+* Lot convinces the angels to stay with them. The men of the city surround the house and want Lot to bring out the angels so they can have sex with them. Why are the men of the city so attracted to the angels? Is it due to the beauty of the angels or solely to the degeneracy of the men?
+* Lot willing to give the men of the city his virgin daughters.
+* The angels strike the men around the house with blindness. They tell Lot to get his family and leave before the LORD destroys the city.
+* Lot warns his daugters' fiances, but they think he's joking and don't leave.
+* Lot lingers the next morning, so the angels grab him, his wife, and his two daughters, and escort them out of the city.
+* The angels tell Lot to go to the hills, but Lot asks if he can go to the small town of Zoar. The angels grant him this and tell him they will not destroy Zoar, but they cannot proceed until he gets there.
+* The LORD destroys Sodom and Gomorrah with fire and brimstone. Interestingly, it says _the LORD rained...fire from the LORD out of heaven._
+* Lot's wife looks behind, disobeying the angel's orders, and becomes a salt pillar.
+* The scene switches to Abraham returning to where he had bargained with the LORD before and sees the destruction.
+* Lot moves out of Zoar to some nearby cave out of fear. His two daughters get him drunk, have sex with him, and each bear a son. One is the father of the Moabites, and the other is the father of the Ammonites.
 
