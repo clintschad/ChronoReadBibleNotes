@@ -114,13 +114,13 @@ Sunday, May 31st, 2026
 * Kings mentioned:
     - [Amraphel](https://en.wikipedia.org/wiki/Amraphel) king of Shinar,
     - [Arioch](https://en.wikipedia.org/wiki/Arioch) king of Ellasar,
-    - Chedorlaomer king of Elam,
+    - [Chedorlaomer](https://en.wikipedia.org/wiki/Chedorlaomer) king of Elam,
     - [Tidal](https://en.wikipedia.org/wiki/Tidal_(king)) king of Goiim,
     - Bera king of Sodom,
     - Birsha king of Gomorrah,
     - Shinab king of Admah,
     - Shemeber king of Zeboiim,
-    - king of Bela/Zoar,
+    - (unnamed) king of Bela/Zoar,
     - [Melchizadek](https://en.wikipedia.org/wiki/Melchizedek) king of [Salem](https://en.wikipedia.org/wiki/Salem_(Bible)) (not in the battle but mentioned later)
 * Places (in addition to the kings' locations):
     - Valley of Siddim (the Salt Sea)
@@ -133,7 +133,7 @@ Sunday, May 31st, 2026
     - Horites in the hill country of Seir
     - Amalekites
     - Amorites in Hazaon-tamar
-* In the battle, Sodom and Gomorrah get plundered and Lot is taken captive. Abram hears about this, gathers a few hundred of his men, pursues those who captured Lot, defeats them, and reclaims all the plunder, as well as freeing Lot.
+* In the battle, [Sodom and Gomorrah](https://en.wikipedia.org/wiki/Sodom_and_Gomorrah) get plundered and Lot is taken captive. Abram hears about this, gathers a few hundred of his men, pursues those who captured Lot, defeats them, and reclaims all the plunder, as well as freeing Lot.
 * The king of Sodom and Melchizadek meet with Abram. Abram gives Melchizadek a tenth of everything (precursor to tithe?) and Abram returns the rest of the plunder (minus some food his men had eaten) back to the king of Sodom.
 
 ## Chapter 15
@@ -187,3 +187,17 @@ Friday, June 5th, 2026
 * The scene switches to Abraham returning to where he had bargained with the LORD before and sees the destruction.
 * Lot moves out of Zoar to some nearby cave out of fear. His two daughters get him drunk, have sex with him, and each bear a son. One is the father of the Moabites, and the other is the father of the Ammonites.
 
+## Chapter 20
+### Abimelech takes Sarah
+* Places:
+    - [Negeb](https://en.wikipedia.org/wiki/Negev)
+    - [Kadesh](https://en.wikipedia.org/wiki/Kadesh_(biblical))
+    - [Shur](https://en.wikipedia.org/wiki/Shur_(Bible))
+    - [Gerar](https://en.wikipedia.org/wiki/Gerar)
+* Abraham travels to the Negeb and stays in Gerar.
+* Abraham tells people (again!) that [Sarah is his wife](https://en.wikipedia.org/wiki/Wife%E2%80%93sister_narratives_in_the_Book_of_Genesis), and Sarah plays along.
+* [Abimelech](https://en.wikipedia.org/wiki/Abimelech), king of Gerar, takes Sarah. Isn't Sarah old by this time? Is she still pretty?
+* Before Abimelech has sex with her, God appears to him in a dream warning not to touch her and to return her, else he and his people die.
+* God afflicts Abimelech with some unknown ailment and his wife and female slaves with barreness.
+* Abimelech confronts Abraham and Abraham responds with the excuse that Sarah is technically his half sister. Abimelech gives Abraham wealth and land so that they're even.
+* Abraham prays to God and God heals Abimelech, his wife, and his female slaves.
