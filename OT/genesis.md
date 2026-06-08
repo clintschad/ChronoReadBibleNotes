@@ -214,3 +214,4 @@ Monday, June 8th, 2026
 * God stays with Ishmael who lives in the wilderness of [Paran](https://en.wikipedia.org/wiki/Desert_of_Paran) and becomes an expert with the bow.
 * Hagar finds an Egyptian wife for Ishmael.
 
+ADD TREATY WITH ABIMELECH HERE
