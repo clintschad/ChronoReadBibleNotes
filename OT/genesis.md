@@ -175,6 +175,7 @@ Friday, June 5th, 2026
 
 ## Chapter 19
 ### Angels rescue Lot from the destruction of Sodom and Gomorrah
+Saturday, June 6th, 2026
 * Chapter starts off with _the two angels came to Sodom_. I assume these angels are two of the three men that previously visited Abraham before.
 * Lot convinces the angels to stay with them. The men of the city surround the house and want Lot to bring out the angels so they can have sex with them. Why are the men of the city so attracted to the angels? Is it due to the beauty of the angels or solely to the degeneracy of the men?
 * Lot willing to give the men of the city his virgin daughters.
@@ -189,6 +190,7 @@ Friday, June 5th, 2026
 
 ## Chapter 20
 ### Abimelech takes Sarah
+Sunday, June 7th, 2026
 * Places:
     - [Negeb](https://en.wikipedia.org/wiki/Negev)
     - [Kadesh](https://en.wikipedia.org/wiki/Kadesh_(biblical))
@@ -201,3 +203,14 @@ Friday, June 5th, 2026
 * God afflicts Abimelech with some unknown ailment and his wife and female slaves with barreness.
 * Abimelech confronts Abraham and Abraham responds with the excuse that Sarah is technically his half sister. Abimelech gives Abraham wealth and land so that they're even.
 * Abraham prays to God and God heals Abimelech, his wife, and his female slaves.
+
+## Chapter 21
+### Birth of Isaac, Hagar and Ishmael leave, and Abimelech makes a treaty with Abraham
+Monday, June 8th, 2026
+* Abraham is 100 years old when Sarah gives birth to Isaac.
+* Sarah sees Ishmael laughing and tells Abraham to force Hagar to leave. Abraham is displeased but God tells him to do so.
+* Abraham gives Hagar and Ishmael food and water before they leave.
+* When the resources are gone and Hagar gives up, an angel reveals a well to her.
+* God stays with Ishmael who lives in the wilderness of [Paran](https://en.wikipedia.org/wiki/Desert_of_Paran) and becomes an expert with the bow.
+* Hagar finds an Egyptian wife for Ishmael.
+
