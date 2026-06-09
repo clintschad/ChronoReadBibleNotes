@@ -213,5 +213,10 @@ Monday, June 8th, 2026
 * When the resources are gone and Hagar gives up, an angel reveals a well to her.
 * God stays with Ishmael who lives in the wilderness of [Paran](https://en.wikipedia.org/wiki/Desert_of_Paran) and becomes an expert with the bow.
 * Hagar finds an Egyptian wife for Ishmael.
-
-ADD TREATY WITH ABIMELECH HERE
+* Abimelech's servants had seized a well and Abraham talked to him
+    - Abimelech says he wasn't aware.
+    - Abimelech recognizes God is with Abraham and wants to make a covenant with him that they themselves and Abraham's descendents will deal honestly with each other.
+    - Abraham says he dug the well, and they swear and agree that Abraham did. The well is then named [Beersheba](https://en.wikipedia.org/wiki/Beersheba#Hebrew_Bible).
+* Abimelech returns to the land of the [_Philistines_](https://en.wikipedia.org/wiki/Philistines).
+* Abraham stays in the _land of the Philistines_ for a while.
+* The phrase _Everlasting God_ appears.
