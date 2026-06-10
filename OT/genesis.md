@@ -220,3 +220,14 @@ Monday, June 8th, 2026
 * Abimelech returns to the land of the [_Philistines_](https://en.wikipedia.org/wiki/Philistines).
 * Abraham stays in the _land of the Philistines_ for a while.
 * The phrase _Everlasting God_ appears.
+
+## Chapter 22
+### God tells Abraham to sacrifice Isaac
+Wednesday, June 10th, 2026
+* Interesting that God says to Abraham "your only son Isaac, _whom you love_...". Why the inclusion of _whom you love_?
+* God tells Abraham to sacrifice Isaac in the _[land of Moriah](https://en.wikipedia.org/wiki/Moriah)_.
+* Interesting that it says Abraham took in his hand _the fire_ when he's going to the sacrifice spot.
+* When Abraham is about to slaughter Isaac, an angel stops him. Abraham sees a ram nearby and sacrifices it instead.
+* The angel tells Abraham since he did not withold his only son, the LORD will truly bless him and his descendents.
+* Abraham, his son, and some young men that went on the journey with them return to Beersheba.
+* Abraham finds out that his brother Nahor (still in Ur?) has many sons (listed in the chapter) by his wife Milcah and concubine Reumah.
