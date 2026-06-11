@@ -231,3 +231,9 @@ Wednesday, June 10th, 2026
 * The angel tells Abraham since he did not withold his only son, the LORD will truly bless him and his descendents.
 * Abraham, his son, and some young men that went on the journey with them return to Beersheba.
 * Abraham finds out that his brother Nahor (still in Ur?) has many sons (listed in the chapter) by his wife Milcah and concubine Reumah.
+
+## Chapter 23
+### The death and burial of Sarah
+June 11th, 2026
+* Sarah dies at the age of 127 in [Kiriath-arba](https://en.wikipedia.org/wiki/Kiryat_Arba) / Hebron.
+* Abraham buys a plot of land with a cave in [Machpelah](https://en.wikipedia.org/wiki/Cave_of_the_Patriarchs) from [Ephron](https://en.wikipedia.org/wiki/List_of_minor_Hebrew_Bible_figures,_A%E2%80%93K#Ephron), a [Hittite](https://en.wikipedia.org/wiki/Hittites) man, for 400 silver shekels and buries Sarah here.
