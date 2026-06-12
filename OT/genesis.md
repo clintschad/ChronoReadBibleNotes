@@ -237,3 +237,15 @@ Wednesday, June 10th, 2026
 June 11th, 2026
 * Sarah dies at the age of 127 in [Kiriath-arba](https://en.wikipedia.org/wiki/Kiryat_Arba) / Hebron.
 * Abraham buys a plot of land with a cave in [Machpelah](https://en.wikipedia.org/wiki/Cave_of_the_Patriarchs) from [Ephron](https://en.wikipedia.org/wiki/List_of_minor_Hebrew_Bible_figures,_A%E2%80%93K#Ephron), a [Hittite](https://en.wikipedia.org/wiki/Hittites) man, for 400 silver shekels and buries Sarah here.
+
+## Chapter 24
+### Abraham's servant finds a wife for Isaac
+June 12th, 2026
+* Abraham makes his most senior servant swear to him that he will go back to [Aram-naharaim](https://en.wikipedia.org/wiki/Aram-Naharaim) to find a wife from his relatives for Isaac and return with her.
+* When the servant (and his servants) arrives at a local well, he asks the LORD to let the woman whom he asks for a drink and who responds with also watering his camels to be the woman he's looking for. Immediately after his prayer, a woman appears, he asks for water, and she responds with giving him water as well as watering his camels. The servant asks her background, and she says her name is Rebekah, a relative of Abraham. The servant gives her jewelry and asks if he and all his servants can stay the night at her family's place, to which she says yes.
+* Before they eat, the servant tells [Laban](https://en.wikipedia.org/wiki/Laban_(Bible)) and [Bethuel](https://en.wikipedia.org/wiki/Bethuel), Rebekah's brother and father, of his journey and the purpose of his visit. He asks if he can bring Rebekah back, to which Laban and Betheul agree.
+* The servants give more jewelry to Rebekah and valuable ornaments to her mother.
+* The next morning, Rebekah's brother and mother ask if she can stay for 10 days, but the servant says he cannot be delayed. The brother and mother ask Rebekah if she's okay with going and she says yes.
+* Rebekah accompanies Abraham's servants with her own servants.
+* Upon Rebekah's arrival in the evening, Isaac is meditating in a field.
+* Rebekah becomes Isaac's wife and Isaac finds comfort after his mother Sarah's death.
