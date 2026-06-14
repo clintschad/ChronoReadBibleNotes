@@ -255,7 +255,7 @@ June 12th, 2026
 Sunday, June 13th, 2026
 * Abraham has another wife, [Keturah](https://en.wikipedia.org/wiki/Keturah), and she bears him 6 children, who in turn have their own children.
 * Abraham gives everything he has to Isaac but gives the sons of his concubines gifts.
-* Abraham dies at 175 and is buried in the cave of Machpelah next to his wife Sarah.
+* Abraham dies at 175 and is buried in the [cave of Machpelah](https://en.wikipedia.org/wiki/Cave_of_the_Patriarchs) next to his wife Sarah.
 * Isaac settles in [Beer-lahai-roi](https://en.wikipedia.org/wiki/List_of_minor_biblical_places#Beer-lahai-roi).
 * Ishmael has children and dies at 137. His people settle from [Havilah](https://en.wikipedia.org/wiki/Havilah) to [Shur](https://en.wikipedia.org/wiki/Shur_(Bible))
 * Isaac was 40 when he took Rebekah as his wife. Rebekah is barren for 20 years until Isaac prays and she conceives twins. Esau is named because he was hairy and Jacob is named because he grabbed his brother's heel.
