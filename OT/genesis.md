@@ -215,7 +215,7 @@ Monday, June 8th, 2026
 * Hagar finds an Egyptian wife for Ishmael.
 * Abimelech's servants had seized a well and Abraham talked to him
     - Abimelech says he wasn't aware.
-    - Abimelech recognizes God is with Abraham and wants to make a covenant with him that they themselves and Abraham's descendents will deal honestly with each other.
+    - Abimelech has come with Phicol, his army's commander. Abimelech recognizes God is with Abraham and wants to make a covenant with him that they themselves and Abraham's descendents will deal honestly with each other.
     - Abraham says he dug the well, and they swear and agree that Abraham did. The well is then named [Beersheba](https://en.wikipedia.org/wiki/Beersheba#Hebrew_Bible).
 * Abimelech returns to the land of the [_Philistines_](https://en.wikipedia.org/wiki/Philistines).
 * Abraham stays in the _land of the Philistines_ for a while.
@@ -262,3 +262,13 @@ Sunday, June 13th, 2026
 * Esau becomes a skilled hunter and Jacob a quiet man who lives in tents.
 * Isaac likes Esau because he eats the game he hunts, but Rebekah likes Jacob.
 * Esau, exhausted from being in the field, begs Jacob if he can have some of his stew. Jacob will only give him food if Esau sells his birthright to him. Esau does, Jacob gives him a full meal, but Esau despises his birthright afterwards.
+
+## Chapter 26
+### Isaac and Abimelech
+Monday, June 14th, 2026
+* Due to a famine, Isaac goes to [Gerar](https://en.wikipedia.org/wiki/Gerar#Biblical_accounts). The LORD warns him to stay there and not go to Egypt and assures Isaac that he will have many descendants and they will have the neighboring lands if he follows His instructions.
+* In Gerar, [Isaac tells everyone that Rebekah is his sister](https://en.wikipedia.org/wiki/Wife%E2%80%93sister_narratives_in_the_Book_of_Genesis) since he's afraid they'll kill him to have her since she's beautiful. [Abimelech](https://en.wikipedia.org/wiki/Abimelech#Abimelech_of_Gerar) sees that they're having an intimate moment and calls Isaac out and tells no one to touch either Isaac or Rebekah. Isaac stays in the land, plants crops and gains greats harvests, and accumulates much wealth. Abimelech tells him to leave since Isaac has become too powerful for them. Isaac moves to the Valley of Gerar and digs up the wells his father had originally dug but that have been filled by the Philistines. He names them Esek, Sitnah, and Rehoboth.
+* Isaac moves to [Beersheba](https://en.wikipedia.org/wiki/Beersheba#Hebrew_Bible) where the LORD reiterates he will bless him and he will have much offspring. Isaac builds an alter and has his servants start digging a well there.
+* Abimelech, Ahuzzath his advisor, and [Phicol](https://en.wikipedia.org/wiki/Phicol) his army commander visit Isaac to make a peace treaty with Isaac. Isaac accepts and makes them a feast.
+* Isaac's servants find water and Isaac calls it Shibah.
+* When [Esau](https://en.wikipedia.org/wiki/Esau) is 40 years old, he takes two Hittite women to be his wives: Judith and Basemath. These women make life bitter for Isaac and Rebekah.
