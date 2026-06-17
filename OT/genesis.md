@@ -272,3 +272,15 @@ Monday, June 14th, 2026
 * Abimelech, Ahuzzath his advisor, and [Phicol](https://en.wikipedia.org/wiki/Phicol) his army commander visit Isaac to make a peace treaty with Isaac. Isaac accepts and makes them a feast.
 * Isaac's servants find water and Isaac calls it Shibah.
 * When [Esau](https://en.wikipedia.org/wiki/Esau) is 40 years old, he takes two Hittite women to be his wives: Judith and Basemath. These women make life bitter for Isaac and Rebekah.
+
+## Chapter 27
+### Jacob Steals Esau's Blessing
+Wednesday, June 17th, 2026
+* Near the end of his life and with his failing eyesight, Isaac asks Esau to hunt some game and cook the meal loves so he can bless him before he dies.
+* Rebekah overhears this and tells Jacob to receive the blessing instead.  She tells Jacob to fetch her two young goats from their flock and she will make the dish her husband loves. Worried how he will trick his father into believing he is Esau, Rebekah puts Esau's garments on Jacob as well as goat skin on him, since he has smooth skinned but Esau is hairy.
+* Verse 15 mentions a house. I assumed they would have lived in tents.
+* Jacob brings the dish to his father and successfully tricks Isaac into thinking he is Esau. Though Isaac is suspicious at first due to his voice, the garments and goat skin convince him that Jacob is Esau.
+* Issac blesses Jacob, telling him his harvests will be great, his brothers will bow to him, and who blesses him will be blessed, and who curses him will be cursed.
+* Right as Jacob leaves Isaac, Esau appears with his dish. Esau is devastated and furious to hear that Jacob stole his blessing. Desperately, he asks Isaac if he will have any blessing. The only one Isaac gives him is that when he grows restless, he will break Jacob's yoke over him.
+* In his anger, Esau plans to kill Jacob after his father dies. Rebekah hears this and sends Jacob to her brother Laban's place until Esau's anger subsides.
+* Rebekah says to her husband that she loathes her life because of the Hittite women and that her life will be worthless if Jacob marries one.
