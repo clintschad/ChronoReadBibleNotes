@@ -274,7 +274,7 @@ Monday, June 14th, 2026
 * When [Esau](https://en.wikipedia.org/wiki/Esau) is 40 years old, he takes two Hittite women to be his wives: Judith and Basemath. These women make life bitter for Isaac and Rebekah.
 
 ## Chapter 27
-### Jacob Steals Esau's Blessing
+### Jacob steals Esau's blessing
 Wednesday, June 17th, 2026
 * Near the end of his life and with his failing eyesight, Isaac asks Esau to hunt some game and cook the meal loves so he can bless him before he dies.
 * Rebekah overhears this and tells Jacob to receive the blessing instead.  She tells Jacob to fetch her two young goats from their flock and she will make the dish her husband loves. Worried how he will trick his father into believing he is Esau, Rebekah puts Esau's garments on Jacob as well as goat skin on him, since he has smooth skinned but Esau is hairy.
@@ -284,3 +284,15 @@ Wednesday, June 17th, 2026
 * Right as Jacob leaves Isaac, Esau appears with his dish. Esau is devastated and furious to hear that Jacob stole his blessing. Desperately, he asks Isaac if he will have any blessing. The only one Isaac gives him is that when he grows restless, he will break Jacob's yoke over him.
 * In his anger, Esau plans to kill Jacob after his father dies. Rebekah hears this and sends Jacob to her brother Laban's place until Esau's anger subsides.
 * Rebekah says to her husband that she loathes her life because of the Hittite women and that her life will be worthless if Jacob marries one.
+
+## Chapter 28
+### Jacob leaves for Laban's place and has a dream on his journey
+Thursday, June 18th, 2026
+* Issac blesses Jacob and sends him off to his uncle Laban's place in [Paddan-aram](https://en.wikipedia.org/wiki/Paddan_Aram) and also instructs him to find a wife from one of his cousins.
+* Hearing of what his father told his brother, Esau marries his cousin [Mahalath](https://en.wikipedia.org/wiki/Mahalath) on his father's side (his uncle Ishamel's daughter).
+* On his journey to Paddan-aram, Jacob stays the night outside and uses a stone as his pillow. He dreams of a ladder from earth to heaven with angels going up and down. The LORD tells Jacob he will give him many offspring. God also tells him he will bring him back to this land. Interestingly, God tells Jacob
+    * _all the families of the earth_ will be blessed through him and his offspring.
+    * He will not leave Jacob until He carries out His promise.
+* After awaking, Jacob sets up his pillow stone as a pillar, anoints it with oil, and names the place [Bethel](https://en.wikipedia.org/wiki/Bethel#Book_of_Genesis), though the place at that time was called [Luz](https://en.wikipedia.org/wiki/Luz_(biblical_place)).
+* Jacob promises to follow God if He will give him the necessities of life and bring him peacefully back home to his father's place.
+* Jacob also promises to give God a tenth of what he has.
