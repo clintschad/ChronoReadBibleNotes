@@ -296,3 +296,10 @@ Thursday, June 18th, 2026
 * After awaking, Jacob sets up his pillow stone as a pillar, anoints it with oil, and names the place [Bethel](https://en.wikipedia.org/wiki/Bethel#Book_of_Genesis), though the place at that time was called [Luz](https://en.wikipedia.org/wiki/Luz_(biblical_place)).
 * Jacob promises to follow God if He will give him the necessities of life and bring him peacefully back home to his father's place.
 * Jacob also promises to give God a tenth of what he has.
+
+## Chapter 29
+### Jacob's marriage to Leah and Rachel and his children with Leah
+Saturday, June 27th, 2026
+* Jacob arrives at a well near Laban's place and talks with the shepherds about Laban. The shepherds see [Rachel](https://en.wikipedia.org/wiki/Rachel) approaching with her flocks and tell Jacob that she is Laban's daughter. Jacob tells Rachel he is her cousin, and Rachel runs to tell her father Laban. Laban meets him and is excited to talk with him. Jacob stays with Laban for a month.
+* Laban asks Jacob what he wants for his wages. Jacob says he wants Rachel as his wife. Laban says he will give him Rachel in exchange for seven years of work. Jacob complete the seven years which fly by for him for his love for Rachel. Unbeknownst to Jacob on his wedding night, Laban gives [Leah](https://en.wikipedia.org/wiki/Leah), the elder daughter, instead. Jacob approaches Laban about this the next morning, and Laban makes the excuse that it is customary to give the elder before the younger, and that he will need to work another seven years for Rachel. Jacob does so, but he loves Rachel more than Leah.
+* Rachel is barren, but the LORD gives children to Leah since Jacob hates her: [Reuben](https://en.wikipedia.org/wiki/Reuben_(son_of_Jacob)), [Simeon](https://en.wikipedia.org/wiki/Simeon_(son_of_Jacob)), [Levi](https://en.wikipedia.org/wiki/Levi), and [Judah](https://en.wikipedia.org/wiki/Judah_(son_of_Jacob)). Thus some of the tribes of Israel come from Leah.
