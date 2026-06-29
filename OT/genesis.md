@@ -306,6 +306,7 @@ Saturday, June 27th, 2026
 
 ## Chapter 30
 ### Jacob has more children and grows his flock of sheep
+Sunday, June 28th, 2026
 * Rachel, seeing she has no children but her sister does, tells Jacob to go into her servant [Bilhah](https://en.wikipedia.org/wiki/Bilhah). Bilhah gives birth to [Dan](https://en.wikipedia.org/wiki/Dan_(son_of_Jacob)) and [Naphtali](https://en.wikipedia.org/wiki/Naphtali).
 * Leah sees that she herself has stopped bearing and gives her servant [Zilpah](https://en.wikipedia.org/wiki/Zilpah) to Jacob to go into. Zilpah bears [Gad](https://en.wikipedia.org/wiki/Gad_(son_of_Jacob)) and [Asher](https://en.wikipedia.org/wiki/Asher).
 * During wheat harvest, the eldest son Reuben finds a [mandrake](https://en.wikipedia.org/wiki/Mandrake#Biblical), a plant whose roots were perceived as helping cure infertility. Rachel asks Leah if she can have it. Leah responds she will hand over the mandrakes if she (Leah) can have Jacob for the night. The two agree and Leah bears [Issachar](https://en.wikipedia.org/wiki/Issachar).
@@ -314,3 +315,13 @@ Saturday, June 27th, 2026
 * Jacob asks Laban if he can go back to his country, but Laban asks him to stay because he has learned by [divination](https://en.wikipedia.org/wiki/Teraphim) that the LORD has made him more prosperous because of Jacob.
 * In order to stay, Jacob says he wants all the speckled, spotted, and black lambs from Laban's flocks. Laban agrees; however, Laban separates all these from his flock and moves them three days away under the watch of his sons.
 * Jacob takes fresh poplar, almond, and plane sticks, carves them white, and places them in front of the watering troughs so the sheep breed in front of them. When the stronger sheep are around, he places the sticks, but when the weaker sheep are present, he removes them. From the breeding, Jacob keeps the stronger lambs but puts the weaker, speckled, and black lambs into Laban's flock.
+
+## Chapter 31
+### Jacob escapes back to Canaan
+Monday, June 29th, 2026
+* _God of Bethel_ (verse 13)
+* _The God of Abraham and the God of Nahor, the God of their Father_ verse (53)
+* Rachel steals her father's [household gods](https://en.wikipedia.org/wiki/Teraphim).
+* Places:
+    - [Galeed/Jegarsahadutha](https://en.wikipedia.org/wiki/List_of_minor_biblical_places#Galeed)
+    - [Mizpah](https://en.wikipedia.org/wiki/Mizpah_in_Benjamin#Biblical_references)
