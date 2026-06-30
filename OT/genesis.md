@@ -312,6 +312,7 @@ Sunday, June 28th, 2026
 * During wheat harvest, the eldest son Reuben finds a [mandrake](https://en.wikipedia.org/wiki/Mandrake#Biblical), a plant whose roots were perceived as helping cure infertility. Rachel asks Leah if she can have it. Leah responds she will hand over the mandrakes if she (Leah) can have Jacob for the night. The two agree and Leah bears [Issachar](https://en.wikipedia.org/wiki/Issachar).
 * Leah bears more children: [Zebulun](https://en.wikipedia.org/wiki/Zebulun), and a daughter, [Dinah](https://en.wikipedia.org/wiki/Dinah).
 * God _remembers_ Rachel and she bears [Joseph](https://en.wikipedia.org/wiki/Joseph_(Genesis)).
+* For three of the children she bears, Leah says that surely her husband will love her now.
 * Jacob asks Laban if he can go back to his country, but Laban asks him to stay because he has learned by [divination](https://en.wikipedia.org/wiki/Teraphim) that the LORD has made him more prosperous because of Jacob.
 * In order to stay, Jacob says he wants all the speckled, spotted, and black lambs from Laban's flocks. Laban agrees; however, Laban separates all these from his flock and moves them three days away under the watch of his sons.
 * Jacob takes fresh poplar, almond, and plane sticks, carves them white, and places them in front of the watering troughs so the sheep breed in front of them. When the stronger sheep are around, he places the sticks, but when the weaker sheep are present, he removes them. From the breeding, Jacob keeps the stronger lambs but puts the weaker, speckled, and black lambs into Laban's flock.
@@ -325,3 +326,13 @@ Monday, June 29th, 2026
 * Places:
     - [Galeed/Jegarsahadutha](https://en.wikipedia.org/wiki/List_of_minor_biblical_places#Galeed)
     - [Mizpah](https://en.wikipedia.org/wiki/Mizpah_in_Benjamin#Biblical_references)
+
+## Chapter 32
+### Jacob heads towards Esau and wrestles with God
+Tuesday, June 30th, 2026
+* Places:
+    - [Mahanaim](https://en.wikipedia.org/wiki/Mahanaim)
+    - [Seir](https://en.wikipedia.org/wiki/Mount_Seir), the country of Edom
+    - [Jabbok River](https://en.wikipedia.org/wiki/Zarqa_River#Biblical_Jabbok)
+    - [Peneul](https://en.wikipedia.org/wiki/Penuel)
+
