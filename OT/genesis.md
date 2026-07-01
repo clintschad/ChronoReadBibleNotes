@@ -336,3 +336,11 @@ Tuesday, June 30th, 2026
     - [Jabbok River](https://en.wikipedia.org/wiki/Zarqa_River#Biblical_Jabbok)
     - [Peneul](https://en.wikipedia.org/wiki/Penuel)
 
+## Chapter 33
+### Jacob meets Esau
+Wednesday, July 1st, 2026
+* Places mentioned:
+    - Seir
+    - [Succoth](https://en.wikipedia.org/wiki/Deir_Alla)
+    - Shechem
+    - Paddan-Aram
