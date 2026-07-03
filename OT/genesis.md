@@ -344,3 +344,11 @@ Wednesday, July 1st, 2026
     - [Succoth](https://en.wikipedia.org/wiki/Deir_Alla)
     - Shechem
     - Paddan-Aram
+
+## Chapter 34
+### The humiliation and consquence of Jacob's daughter's defilement
+Friday, July 3rd, 2026
+* Noteworthy people:
+    - [Dinah](https://en.wikipedia.org/wiki/Dinah), daughter of Leah
+    - [Shechem](https://en.wikipedia.org/wiki/Shechem#Hebrew_Bible_(Old_Testament)), son of Havor the [Hivite](https://en.wikipedia.org/wiki/Hivites)
+    - [Simeon](https://en.wikipedia.org/wiki/Simeon_(son_of_Jacob)) and [Levi](https://en.wikipedia.org/wiki/Levi), Jacob's sons
