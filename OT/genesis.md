@@ -352,3 +352,24 @@ Friday, July 3rd, 2026
     - [Dinah](https://en.wikipedia.org/wiki/Dinah), daughter of Leah
     - [Shechem](https://en.wikipedia.org/wiki/Shechem#Hebrew_Bible_(Old_Testament)), son of Havor the [Hivite](https://en.wikipedia.org/wiki/Hivites)
     - [Simeon](https://en.wikipedia.org/wiki/Simeon_(son_of_Jacob)) and [Levi](https://en.wikipedia.org/wiki/Levi), Jacob's sons
+
+## Chapter 35
+### God blesses Jacob, but his wife and father pass away
+Saturday, July 4th, 2026
+* Noteworthy places:
+    - Bethel/Luz
+    - [Ephrath](https://en.wikipedia.org/wiki/Ephrath)/Bethlehm
+    - [Tower of Eder](https://en.wikipedia.org/wiki/Migdal_Eder_(biblical_location))
+    - Mamre/Kiriath-arba/Hebron
+* Noteworthy people:
+    - Deborah, Jacob's mother's nurse
+* Yahweh:
+    - Jacob tells his household to put away their foreign gods and purify themselves.
+    - Here, Jacob refers to God as "the Elohim who answers me in my distress and has been with me wherever I have gone."
+    - Jacob takes the foreign gods from his household (and their earrings?) and hides them under a tree near Shechem.
+    - In a dream, Elohim names Jacob again as "Israel," as the man (actually Elohim) who had wresteled Jacob had done before (Gen 32).
+* Rachel dies giving birth to Benjamin and is buried in Ephrath/Bethlehem.
+* Jacob's eldest son Reuben lies with his Aunt Rachel's servant Bilhah.
+* Isaac passes away at 180 years old. Rachel dies before Jacob's father. Jacob and Esau bury their father Isaac.
+
+ 
