@@ -372,4 +372,7 @@ Saturday, July 4th, 2026
 * Jacob's eldest son Reuben lies with his Aunt Rachel's servant Bilhah.
 * Isaac passes away at 180 years old. Rachel dies before Jacob's father. Jacob and Esau bury their father Isaac.
 
- 
+ ## Chapter 36
+ ### Edomite Kings List
+ Sunday, July 5th, 2026
+ * These are the descendants of Esau.
