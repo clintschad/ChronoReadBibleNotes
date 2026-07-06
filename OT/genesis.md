@@ -376,3 +376,11 @@ Saturday, July 4th, 2026
  ### Edomite Kings List
  Sunday, July 5th, 2026
  * These are the descendants of Esau.
+
+## Chapter 37
+### Joseph sold by his brothers to traders
+Monday, July 6th, 2026
+* Joseph is sold by his brothers to [Ishmaelites](https://en.wikipedia.org/wiki/Ishmaelites)/Midianite traders, coming from [Gilead](https://en.wikipedia.org/wiki/Gilead#Hebrew_Bible) and headed to Egypt.
+* Noteworthy places
+    - [Dothan](https://en.wikipedia.org/wiki/Tel_Dothan)
+* Upon hearing the news, Jacob says that he will go down to Sheol to his son, mourning.
