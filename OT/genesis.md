@@ -384,3 +384,5 @@ Monday, July 6th, 2026
 * Noteworthy places
     - [Dothan](https://en.wikipedia.org/wiki/Tel_Dothan)
 * Upon hearing the news, Jacob says that he will go down to Sheol to his son, mourning.
+
+READ ALL FOOTNOTES FOR CHAPTER 37
