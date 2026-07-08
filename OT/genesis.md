@@ -385,4 +385,16 @@ Monday, July 6th, 2026
     - [Dothan](https://en.wikipedia.org/wiki/Tel_Dothan)
 * Upon hearing the news, Jacob says that he will go down to Sheol to his son, mourning.
 
-CREATE NOTES FOR CH 38
+## Chapter 38
+### Judah and his daughter-in-law Tamar
+Wednesday, July 8th, 2026
+* People
+    - Judah's friend, [Hirah](https://fr.wikipedia.org/wiki/Hira_(Bible)), an Adullamite
+    - Judah's unnamed wife, daughter of [Shua](https://en.wikipedia.org/wiki/Shuah#Genesis_38), a Canaanite
+    - Judah and the unnamed wife's sons, [Er](https://en.wikipedia.org/wiki/Er_(biblical_person)) and [Onan](https://en.wikipedia.org/wiki/Onan).
+    - [Tamar](https://en.wikipedia.org/wiki/Tamar_(Genesis)), wife of Er. Er dies, so Onan becomes her husband. Onan dies, and Tamar becomes a widow again.
+    - [Perez](https://en.wikipedia.org/wiki/Perez_(son_of_Judah)) and [Zerah](https://en.wikipedia.org/wiki/Zerah), sons of Judah and his daughter-in-law Tamar. Perez is in the genealogy of [Jesus](https://en.wikipedia.org/wiki/Genealogy_of_Jesus).
+* Places
+    - [Timnah](https://en.wikipedia.org/wiki/Timnah)
+    - [Enaim](https://en.wikipedia.org/wiki/List_of_minor_biblical_places#Enam)
+
