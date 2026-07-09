@@ -398,3 +398,11 @@ Wednesday, July 8th, 2026
     - [Timnah](https://en.wikipedia.org/wiki/Timnah)
     - [Enaim](https://en.wikipedia.org/wiki/List_of_minor_biblical_places#Enam)
 
+## Chapter 39
+### Joseph and Potiphar's Wife
+Thursday, July 9th, 2026
+* People:
+* Places:
+* Joseph is sent to an Egyptian prison. Interestingly, imprisonment is mentioned in Egyptian records but not in other ancient Near East law codes.
+
+Add more notes to Chapter 39
