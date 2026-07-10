@@ -380,7 +380,7 @@ Saturday, July 4th, 2026
 ## Chapter 37
 ### Joseph sold by his brothers to traders
 Monday, July 6th, 2026
-* Joseph is sold by his brothers to [Ishmaelites](https://en.wikipedia.org/wiki/Ishmaelites)/Midianite traders, coming from [Gilead](https://en.wikipedia.org/wiki/Gilead#Hebrew_Bible) and headed to Egypt.
+* [Joseph](https://en.wikipedia.org/wiki/Joseph_(Genesis)) is sold by his brothers to [Ishmaelites](https://en.wikipedia.org/wiki/Ishmaelites)/Midianite traders, coming from [Gilead](https://en.wikipedia.org/wiki/Gilead#Hebrew_Bible) and headed to Egypt.
 * Noteworthy places
     - [Dothan](https://en.wikipedia.org/wiki/Tel_Dothan)
 * Upon hearing the news, Jacob says that he will go down to Sheol to his son, mourning.
@@ -401,8 +401,6 @@ Wednesday, July 8th, 2026
 ## Chapter 39
 ### Joseph and Potiphar's Wife
 Thursday, July 9th, 2026
-* People:
-* Places:
+* Noteworthy people:
+    - [Potiphar](https://en.wikipedia.org/wiki/Potiphar): Pharaoh's captain of the guard
 * Joseph is sent to an Egyptian prison. Interestingly, imprisonment is mentioned in Egyptian records but not in other ancient Near East law codes.
-
-Add more notes to Chapter 39
