@@ -404,3 +404,9 @@ Thursday, July 9th, 2026
 * Noteworthy people:
     - [Potiphar](https://en.wikipedia.org/wiki/Potiphar): Pharaoh's captain of the guard
 * Joseph is sent to an Egyptian prison. Interestingly, imprisonment is mentioned in Egyptian records but not in other ancient Near East law codes.
+
+## Chapter 40
+### Joseph interprets two prisoner's dreams
+Saturday, July 11th, 2026
+* Joseph says "interpretations belong to God (Elohim)" [verse 8]
+* Joseph says he was "stolen out of the land of the [Hebrews](https://en.wikipedia.org/wiki/Hebrews)" [verse 15]. 
