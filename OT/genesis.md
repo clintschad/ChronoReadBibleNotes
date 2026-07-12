@@ -410,3 +410,14 @@ Thursday, July 9th, 2026
 Saturday, July 11th, 2026
 * Joseph says "interpretations belong to God (Elohim)" [verse 8]
 * Joseph says he was "stolen out of the land of the [Hebrews](https://en.wikipedia.org/wiki/Hebrews)" [verse 15]. 
+
+## Chapter 41
+### Joseph interprets Pharaoh's dreams
+Sunday, July 12th, 2026
+* The cupbearer -- after two years -- says he "remembers his offenses that day." I assume he is referring to forgetting to tell Pharaoh about Joseph, as Joseph had requested.
+* Joseph tells Pharaoh that Elohim will give Pharaoh the answer to his dreams [v16]
+* Interestingly, during the dream interpretation, Joseph says the doubling of the dream (cows and corn) means that God has set this to occur and that it will happen soon [v32].
+* Referring to Joseph, Pharaoh mentions "Spirit of God". Which God/s was he talking about?
+* Pharaoh calls Joseph [Zaphenath-paneah](https://en.wikipedia.org/wiki/Zaphnath-Paaneah), which might mean "God speaks and he lives."
+* Pharaoh gives [Asenath](https://en.wikipedia.org/wiki/Asenath) to be Joseph's wife. She is the daughter of [Potiphera](https://en.wikipedia.org/wiki/Potipherah), priest of of the town of [On](https://en.wikipedia.org/wiki/Heliopolis_(ancient_Egypt)). This town will later be known by the Greek name _Heliopolis_.
+* Joseph and Asenath have two sons, [Manasseh](https://en.wikipedia.org/wiki/Manasseh_(tribal_patriarch)) and [Ephraim](https://en.wikipedia.org/wiki/Ephraim).
