@@ -424,7 +424,7 @@ Sunday, July 12th, 2026
 
 ## Chapter 42
 ### Joseph's brothers go to Egypt
-Monday, July 11th, 2026
+Monday, July 13th, 2026
 * When talking with his brothers who have not recognize him, Joseph tells them that he fears God. Which God? Or is this a general term for God? [v18].
 * When his brothers are talking amongst themselves, Joseph surprisingly needs an interpreter to eavesdrop. I suppose he got rusty in his native language? [v23]
 * Reuben tells their father that he cam kill his two sons if anything happens to Benjamin. Yet again, Reuben is the one to watch out for his brother [v37].
