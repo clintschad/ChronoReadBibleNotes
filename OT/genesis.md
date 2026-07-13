@@ -421,3 +421,12 @@ Sunday, July 12th, 2026
 * Pharaoh calls Joseph [Zaphenath-paneah](https://en.wikipedia.org/wiki/Zaphnath-Paaneah), which might mean "God speaks and he lives."
 * Pharaoh gives [Asenath](https://en.wikipedia.org/wiki/Asenath) to be Joseph's wife. She is the daughter of [Potiphera](https://en.wikipedia.org/wiki/Potipherah), priest of of the town of [On](https://en.wikipedia.org/wiki/Heliopolis_(ancient_Egypt)). This town will later be known by the Greek name _Heliopolis_.
 * Joseph and Asenath have two sons, [Manasseh](https://en.wikipedia.org/wiki/Manasseh_(tribal_patriarch)) and [Ephraim](https://en.wikipedia.org/wiki/Ephraim).
+
+## Chapter 42
+### Joseph's brothers go to Egypt
+Monday, July 11th, 2026
+* When talking with his brothers who have not recognize him, Joseph tells them that he fears God. Which God? Or is this a general term for God? [v18].
+* When his brothers are talking amongst themselves, Joseph surprisingly needs an interpreter to eavesdrop. I suppose he got rusty in his native language? [v23]
+* Reuben tells their father that he cam kill his two sons if anything happens to Benjamin. Yet again, Reuben is the one to watch out for his brother [v37].
+* Simeon is held in custody in Egypt while the rest of the brothers fetch Benjamin [v36].
+* Jacob says that he and his gray hairs will go down to Sheol in sorrow if Benjamin is harmed [v38].
