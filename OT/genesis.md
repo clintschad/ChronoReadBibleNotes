@@ -430,3 +430,11 @@ Monday, July 13th, 2026
 * Reuben tells their father that he cam kill his two sons if anything happens to Benjamin. Yet again, Reuben is the one to watch out for his brother [v37].
 * Simeon is held in custody in Egypt while the rest of the brothers fetch Benjamin [v36].
 * Jacob says that he and his gray hairs will go down to Sheol in sorrow if Benjamin is harmed [v38].
+
+## Chapter 43
+### Joseph's brothers return to Egypt
+Tuesday, July 14th, 2026
+* In this chapter, Jacob is referred to as Israel.
+* _God Almighty_ or _El Shaddai_ is used by Jacob [v14].
+* When Joseph's brothers came over for lunch, they had to eat separately from the other Egyptians because the Egyptians look down on eating with Hebrews [v32].
+* Benjamin received 5x the portions as his brothers during this lunch.
