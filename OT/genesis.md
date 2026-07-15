@@ -438,3 +438,5 @@ Tuesday, July 14th, 2026
 * _God Almighty_ or _El Shaddai_ is used by Jacob [v14].
 * When Joseph's brothers came over for lunch, they had to eat separately from the other Egyptians because the Egyptians look down on eating with Hebrews [v32].
 * Benjamin received 5x the portions as his brothers during this lunch.
+
+Write notes for 44
