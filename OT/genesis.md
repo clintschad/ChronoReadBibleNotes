@@ -440,3 +440,9 @@ Tuesday, July 14th, 2026
 * Benjamin received 5x the portions as his brothers during this lunch.
 
 Write notes for 44
+Write notes for 45
+* Joseph says God sent him to Egypt to save not only his family but others as well.
+* Joseph wants his family to move to Goshen.
+* After Pharoah hears that Joseph's brothers are there, he _orders_ Joseph to send wagons to bring his family back and give them the best land of Egypt.
+* Joseph again gives more money and clothes to Benjamin his full brother than the rest of his half brothers.
+* Funny enough, when Joseph sees them off, he tells them not to argue amongst themselves on the way back.
