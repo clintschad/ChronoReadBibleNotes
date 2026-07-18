@@ -447,10 +447,18 @@ Friday, July 17th, 2026
  - When the brothers return after being "caught" with the cup, Joseph again tells them that someone like him can "indeed" do divination [v15].
 
 ## Chapter 45
-### Joseph reveals himself and his family moves to Egypt
+### Joseph reveals himself and tells his brothers to move to Egypt
 Friday, July 17th, 2026
 * Joseph says God sent him to Egypt to save not only his family but others as well.
 * Joseph wants his family to move to [Goshen](https://en.wikipedia.org/wiki/Land_of_Goshen).
 * After Pharoah hears that Joseph's brothers are there, he _orders_ Joseph to send wagons to bring his family back and give them the best land of Egypt.
 * Joseph again gives more money and clothes to Benjamin his full brother than the rest of his half brothers.
 * Funny enough, when Joseph sees them off, he tells them not to argue amongst themselves on the way back.
+
+## Chapter 46
+### Joseph's family arrives in Egypt
+Saturday, July 18th, 2026
+* Jacob (Israel) offers sacrifices to the "Elohim of his father Isaac" [v1].
+* God says "I am Elohim, the Elohim of your father" [v3].
+* All the children of Jacob's sons are listed [v8-25].
+* Joseph tells his family that he will tell Pharaoh that they are shepherds since shepherds are an abomination to the Egyptians. This will allow them to dwell in the land of Goshen.
