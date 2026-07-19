@@ -462,3 +462,14 @@ Saturday, July 18th, 2026
 * God says "I am Elohim, the Elohim of your father" [v3].
 * All the children of Jacob's sons are listed [v8-25].
 * Joseph tells his family that he will tell Pharaoh that they are shepherds since shepherds are an abomination to the Egyptians. This will allow them to dwell in the land of Goshen.
+
+## Chapter 47
+### Joseph's family meets Pharaoh and Pharaoh buys all the land
+Sunday, July 18th, 2026
+* Pharaoh tells Joseph if any of his family is capable of watching his (Pharaoh's) livestock, to let him know [v6].
+* Jacob meets Pharaoh, they converse, and Jacob blesses him [v7-10].
+* I assume "land of Rameses" [v4] is the same as "land of Goshen" [v11].
+* The famine becomes so severe, that the Egyptians first spend all their money and then trade all their livestock to Joseph for grain. After their money and livestock is gone, they sell their land and become servants of Pharaoh in exchange for food. Thus, Pharaoh owns all the land of Egypt. Joseph commands the people to raise crops, give 20% to Pharaoh, and keep the rest. The passage says this is the reason why this happens "to this day" [v13-26].
+    - The exception is the priests for they receive a fixed allowance from Pharaoh and did not sell their land.
+* First mention of horses [v17].
+* Jacob lives to 147 [v28].
