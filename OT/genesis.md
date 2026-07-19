@@ -465,7 +465,7 @@ Saturday, July 18th, 2026
 
 ## Chapter 47
 ### Joseph's family meets Pharaoh and Pharaoh buys all the land
-Sunday, July 18th, 2026
+Sunday, July 19th, 2026
 * Pharaoh tells Joseph if any of his family is capable of watching his (Pharaoh's) livestock, to let him know [v6].
 * Jacob meets Pharaoh, they converse, and Jacob blesses him [v7-10].
 * I assume "land of Rameses" [v4] is the same as "land of Goshen" [v11].
