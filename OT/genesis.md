@@ -478,4 +478,4 @@ Monday, July 20th, 2026
 * Places: [Ephrath](https://en.wikipedia.org/wiki/Ephrath) (Bethlehem) [v7]
 * Jacob mentions "El Shaddai" or "God Almighty" [v3]
 * Jacob purposefully crosses his arms to keep his right hand on Ephraim -- the younger of Joseph's sons -- to bless him. Joseph tries to switch his father's hands, but Jacob tells Joseph that the younger will be the greater. [v17-20]
-* Jacob tells Joseph that Elohim will bring him back to the land of Canaan. [v21].
+* Jacob tells Joseph that Elohim will bring him back to the land of Canaan. [v21]. This won't be fullfilled for hundreds of years until Moses takes Joseph's bones when the Israelites leave Egypt [Exodus 13:19].
