@@ -475,7 +475,7 @@ Sunday, July 19th, 2026
 ## Chapter 48
 ### Jacob blesses Joseph's sons
 Monday, July 20th, 2026
-Places: [Ephrath](https://en.wikipedia.org/wiki/Ephrath) (Bethlehem) [v7]
+* Places: [Ephrath](https://en.wikipedia.org/wiki/Ephrath) (Bethlehem) [v7]
 * Jacob mentions "El Shaddai" or "God Almighty" [v3]
 * Jacob purposefully crosses his arms to keep his right hand on Ephraim -- the younger of Joseph's sons -- to bless him. Joseph tries to switch his father's hands, but Jacob tells Joseph that the younger will be the greater. [v17-20]
 * Jacob tells Joseph that Elohim will bring him back to the land of Canaan. [v21].
