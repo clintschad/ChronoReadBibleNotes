@@ -471,5 +471,11 @@ Sunday, July 19th, 2026
 * I assume "land of Rameses" [v4] is the same as "land of Goshen" [v11].
 * The famine becomes so severe, that the Egyptians first spend all their money and then trade all their livestock to Joseph for grain. After their money and livestock is gone, they sell their land and become servants of Pharaoh in exchange for food. Thus, Pharaoh owns all the land of Egypt. Joseph commands the people to raise crops, give 20% to Pharaoh, and keep the rest. The passage says this is the reason why this happens "to this day" [v13-26].
     - The exception is the priests for they receive a fixed allowance from Pharaoh and did not sell their land.
-* First mention of horses [v17].
-* Jacob lives to 147 [v28].
+ 
+## Chapter 48
+### Jacob blesses Joseph's sons
+Monday, July 20th, 2026
+Places: [Ephrath](https://en.wikipedia.org/wiki/Ephrath) (Bethlehem) [v7]
+* Jacob mentions "El Shaddai" or "God Almighty" [v3]
+* Jacob purposefully crosses his arms to keep his right hand on Ephraim -- the younger of Joseph's sons -- to bless him. Joseph tries to switch his father's hands, but Jacob tells Joseph that the younger will be the greater. [v17-20]
+* Jacob tells Joseph that Elohim will bring him back to the land of Canaan. [v21].
