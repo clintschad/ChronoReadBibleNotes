@@ -484,10 +484,10 @@ Monday, July 20th, 2026
 ### Jacob blesses his sons
 Tuesday, July 21st, 2026
 * Reuben doesn't get a good blessing even though he tried saving Joseph [v3-4].
-* Notable mentions of God
+* Notable mentions of Elohim
     - Yahweh [v18]
     - Mighty One of Jacob...the Shepherd, the Stone of Israel [v24]
-    - God of your father [v25]
+    - Elohim of your father [v25]
     - the Almighty (El Shaddai) [v25]
 * Jacob asks to be buried with his father in the cave of Machpelah.
 * Jacob passes away.
