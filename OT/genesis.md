@@ -491,3 +491,14 @@ Tuesday, July 21st, 2026
     - the Almighty (El Shaddai) [v25]
 * Jacob asks to be buried with his father in the cave of Machpelah.
 * Jacob passes away.
+
+## Chapter 50
+### Jacob, and later Joseph, pass away
+Wednesday, July 22nd, 2026
+* Jacob is embalmed.
+* A great company brings Jacob's body back to his homeland: his immediate family, all the elders of Egypt, chariots and horsemen, etc.
+* They arrive at the threshing floor of [Atad](https://en.wikipedia.org/wiki/Atad) and mourn there for seven days. The place was named [Abel-mizraim](https://en.wikipedia.org/wiki/Abel-mizraim).
+* Jacob is buried in the cave of Machpelah.
+* Although Joseph's brothers are afraid Joseph will hate them since their father is gone, Joseph reiterates that their evil was worked into good to save many lives. Joseph treats them with kindness.
+* Joseph tells his brothers that God will bring them back to the land of their fathers and makes them swear that they bring his bones back.
+* Joseph passes away at age 110.
