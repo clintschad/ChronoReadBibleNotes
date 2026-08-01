@@ -18,7 +18,7 @@ Sunday, July 26th, 2026
 ## Chapter 3
 ### God talks to Moses through a burning bush
 Saturday, August 1st, 2026
-* Moses sees a burning bush on Horeb, the mountain of God.
+* Moses sees a burning bush on [Horeb](https://en.wikipedia.org/wiki/Mount_Horeb#Biblical_usage), the mountain of God.
 * God says He will be with Moses when he asks Pharaoh to let the Israelites go.
 * God says after Pharaoh lets the Israelites go, Moses will serve God on Mount Horeb.
 * God tells Moses "I AM WHO I AM" is his name if the Israelites ask him what the name of the God of their fathers is.
@@ -35,4 +35,4 @@ Saturday, August 1st, 2026
 * When Moses tells God he is not a great speaker, God tells him he will help him and Aaron and He will talk to Moses, Moses to Aaron, and Aaron to the Israelites.
 * God tells Moses that the people looking to kill him are dead and to return to Egypt. Moses takes his wife and sons and places them on a donkey on his way there.
 * Yahweh tells Moses to tell Pharaoh that Israel is his firstborn son [v22]
-* With no leading context, Yahweh meets Moses at a lodging place on his way to Egypt and seeks to kill Moses. His wife circumcises their son, touches Moses' feet with it, and tells him "you are a bridegroom of blood to me!" Then Yahweh leaves Moses alone. These verses seems strange [24-26].
+* With no leading context, Yahweh meets Moses at a lodging place on his way to Egypt and seeks to kill Moses. His wife circumcises their son, touches Moses' feet with it, and tells him "you are a bridegroom of blood to me!" Then Yahweh leaves Moses alone. [These verses seems strange](https://en.wikipedia.org/wiki/Zipporah_at_the_inn) [24-26].
