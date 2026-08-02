@@ -36,3 +36,8 @@ Saturday, August 1st, 2026
 * God tells Moses that the people looking to kill him are dead and to return to Egypt. Moses takes his wife and sons and places them on a donkey on his way there.
 * Yahweh tells Moses to tell Pharaoh that Israel is his firstborn son [v22]
 * With no leading context, Yahweh meets Moses at a lodging place on his way to Egypt and seeks to kill Moses. His wife circumcises their son, touches Moses' feet with it, and tells him "you are a bridegroom of blood to me!" Then Yahweh leaves Moses alone. [These verses seems strange](https://en.wikipedia.org/wiki/Zipporah_at_the_inn) [24-26].
+
+## Chapter 5
+### Moses and Aaron talk to Pharaoh, but Pharaoh increases the Israelites' burden
+* After talking with Moses and Aaron, Pharaoh tells the taskmasters and the foremen under them to not supply the Israelites with straw, but make them find their own. However, they will have to produce the same number of bricks.
+* The foremen (Israelite or Egyptian?) complain to Pharaoh and then later to Moses and Aaron for making their predicament worse. Pharaoh says they're not working hard and keeps his edict active.
