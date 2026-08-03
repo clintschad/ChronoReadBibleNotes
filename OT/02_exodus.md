@@ -39,5 +39,13 @@ Saturday, August 1st, 2026
 
 ## Chapter 5
 ### Moses and Aaron talk to Pharaoh, but Pharaoh increases the Israelites' burden
+Sunday, August 2nd, 2026
 * After talking with Moses and Aaron, Pharaoh tells the taskmasters and the foremen under them to not supply the Israelites with straw, but make them find their own. However, they will have to produce the same number of bricks.
 * The foremen (Israelite or Egyptian?) complain to Pharaoh and then later to Moses and Aaron for making their predicament worse. Pharaoh says they're not working hard and keeps his edict active.
+
+## Chapter 6
+### God tells Moses to talk to Pharaoh. Genealogy of Moses and Aaron.
+Monday, August 3rd, 2026
+* Elohim tells Moses he is _Yahweh_, but with Abraham, Isaac, and Jacob he used the name _El Shaddai_ instead [v2];
+* [Amram](https://en.wikipedia.org/wiki/Amram) is Moses' father, and [Jochebed](https://en.wikipedia.org/wiki/Jochebed) is Moses' mother. 
+* People are still living into their 130s.
