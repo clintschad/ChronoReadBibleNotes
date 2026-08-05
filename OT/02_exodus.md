@@ -49,3 +49,12 @@ Monday, August 3rd, 2026
 * Elohim tells Moses he is _Yahweh_, but with Abraham, Isaac, and Jacob he used the name _El Shaddai_ instead [v2];
 * [Amram](https://en.wikipedia.org/wiki/Amram) is Moses' father, and [Jochebed](https://en.wikipedia.org/wiki/Jochebed) is Moses' mother. 
 * People are still living into their 130s.
+
+## Chapter 7
+### Moses and Aaron turn the staff to a snake and the Nile into blood
+Wednesday, August 5th, 2026
+* Moses and Aaron are in their 80s [v7].
+* Yahweh says he will harden Pharaoh's heart [v3].
+* Yahweh calls himself "God of the Hebrews" [v16].
+* For both the staff turning to a snake and the Nile turning into blood, the Egyptian magicians do the same "by their secret arts" [v11 and v22].
+* When the Nile is blood, the Egyptians dig along the Nile to get drinkable water.
