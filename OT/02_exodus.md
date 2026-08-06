@@ -58,3 +58,11 @@ Wednesday, August 5th, 2026
 * Yahweh calls himself "God of the Hebrews" [v16].
 * For both the staff turning to a snake and the Nile turning into blood, the Egyptian magicians do the same "by their secret arts" [v11 and v22].
 * When the Nile is blood, the Egyptians dig along the Nile to get drinkable water.
+
+## Chapter 8
+### Yahweh sends frogs, gnats, and flies
+Thursday, August 6th, 2026
+* The magicians could replicate the frogs [v7] but not the gnats [v18]. They tell Pharaoh "This is the finger of Elohim (god/the gods)."
+* Upon sending flies, Pharaoh tells Moses and Aaron to have the people sacrifice to their God in Egypt. Moses tells Pharaoh that they must go three days journey into the wilderness to sacrifice to Yahweh.
+* Moses tells Pharaoh to "not cheat" again and not let the Israelites go despite saying he will [v29].
+* Each time, Pharaoh asks for the plague to be taken away, but once removed, changes his mind.
