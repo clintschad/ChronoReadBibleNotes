@@ -66,3 +66,10 @@ Thursday, August 6th, 2026
 * Upon sending flies, Pharaoh tells Moses and Aaron to have the people sacrifice to their God in Egypt. Moses tells Pharaoh that they must go three days journey into the wilderness to sacrifice to Yahweh.
 * Moses tells Pharaoh to "not cheat" again and not let the Israelites go despite saying he will [v29].
 * Each time, Pharaoh asks for the plague to be taken away, but once removed, changes his mind.
+
+## Chapter 9
+### Yahweh kills livestock and sends boils and hail
+Friday, August 7th, 2026
+* For the livestock death and hail, the chapter explicitly states that they were restricted to only the Egyptians or land of the Egyptians; the Israelites in Goshen were unaffected. I assume the same was for the boils.
+* Yahweh says he could have inflicted Pharaoh much more, but Yahweh does these things to show Pharaoh his power, so Yahweh's name will be known throughout the earth [v16]. I assume this is also why Yahweh keeps hardening Pharaoh's heart.
+* Pharaoh admits that he has sinned when the hail occurs [v27].
