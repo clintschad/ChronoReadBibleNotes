@@ -73,3 +73,12 @@ Friday, August 7th, 2026
 * For the livestock death and hail, the chapter explicitly states that they were restricted to only the Egyptians or land of the Egyptians; the Israelites in Goshen were unaffected. I assume the same was for the boils.
 * Yahweh says he could have inflicted Pharaoh much more, but Yahweh does these things to show Pharaoh his power, so Yahweh's name will be known throughout the earth [v16]. I assume this is also why Yahweh keeps hardening Pharaoh's heart.
 * Pharaoh admits that he has sinned when the hail occurs [v27].
+
+## Chapter 10
+### Yahweh brings locusts and darkness upon Egypt
+Sunday, August 9th, 2026
+* Yahweh tells Moses He has hardened Pharaoh's and his servants hearts so that He may perform his signs among them and Moses may tell his descendants how He dealt harshly with the Egyptians, and that they will know that he is Yahweh [v1-2]
+* After Moses tells Pharaoh to let the Israelites go, else Yahweh will send locusts on Egypt, Pharaoh's servants tell him to let the Israelites go because Egypt is in shambles from the hail.
+* Pharaoh says the Israelite men may go, but not the rest (children, livestock, etc) since he suspects the Israelites are up to no good. [v10-11].
+* After Yahweh sends total darkness, Pharaoh tells Moses all the Israelites can leave but their livestock must stay behind. Moses tells Pharaoh they need to bring all their livestock because they don't know which livestock they'll need.
+* Pharaoh scolds Moses telling him the next time he sees Moses' face, Moses will be killed. Moses agrees that he will not see his face again.
