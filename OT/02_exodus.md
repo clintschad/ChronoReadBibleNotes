@@ -82,3 +82,10 @@ Sunday, August 9th, 2026
 * Pharaoh says the Israelite men may go, but not the rest (children, livestock, etc) since he suspects the Israelites are up to no good. [v10-11].
 * After Yahweh sends total darkness, Pharaoh tells Moses all the Israelites can leave but their livestock must stay behind. Moses tells Pharaoh they need to bring all their livestock because they don't know which livestock they'll need.
 * Pharaoh scolds Moses telling him the next time he sees Moses' face, Moses will be killed. Moses agrees that he will not see his face again.
+
+## Chapter 11
+### Moses warns Pharaoh that Yahweh will kill every firstborn
+Wednesday, August 12th, 2026
+* Yahweh gives the Israelites favor in the eyes of the Egyptians [v3].
+* Moses is also distinguished in Egypt, especially among Pharaoh's servants [v3].
+* Yahweh will kill all firstborn people and cattle [v5].
