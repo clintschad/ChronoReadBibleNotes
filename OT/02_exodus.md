@@ -89,3 +89,17 @@ Wednesday, August 12th, 2026
 * Yahweh gives the Israelites favor in the eyes of the Egyptians [v3].
 * Moses is also distinguished in Egypt, especially among Pharaoh's servants [v3].
 * Yahweh will kill all firstborn people and cattle [v5].
+
+## Chapter 12
+### Passover and death of the Egyptian firstborns
+Saturday, August 15th, 2026
+* [Passover](https://en.wikipedia.org/wiki/Passover) marks the beginning of the year [v1].
+* The Passover food could be lamb or goat [v6].
+* The Passover food was supposed to be consumed with belt fastened, sandals on, staff in hand, and in a hurry. [v11].
+* Yahweh was to execute judgment on all the gods of Egypt [v13].
+* Yahweh was not to allow the _destroyer_ to enter the houses with blood on the door posts. Who is the _destroyer_? [v23].
+* After the Egyptian firstborns die and Pharaoh tells Moses to go, he tells Moses to "bless him also" [v32].
+* The Israelites ask and receive jewelry and clothing from the Egyptians. Thus they "plundered" the Egyptians [v36].
+* 600,000 men, not including women and children, made up the Israelites that left [v37].
+* The Israelites lived in Egypt 430 years [v105].
+* It was "a night of watching by Yahweh" [v42].
