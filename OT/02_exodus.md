@@ -103,3 +103,14 @@ Saturday, August 15th, 2026
 * 600,000 men, not including women and children, made up the Israelites that left [v37].
 * The Israelites lived in Egypt 430 years [v105].
 * It was "a night of watching by Yahweh" [v42].
+
+## Chapter 13
+### Yahweh claims all male firstborns and leads the Israelites out of Egypt
+Sunday, August 16th, 2026
+* Yahweh claims all the firstborn males, human and beast, belong to Him [v2].
+* The firstborn donkey could be kept if a lamb was sacrificed for it, otherwise it had to be killed by breaking its neck [v13].
+* Yahweh didn't directly lead them to the land of Canaan because they could run into war [v17].
+* The Israelites were equipped for battle [v18].
+* Moses retrieves Joseph's bones before leaving so the promise their forefathers made to Joseph would be kept (Gen 50:25) [v19].
+* Yahweh goes before the Israelites and leads as a cloud pillar during the day and a fire pillar at night. The fire pillar gives light and allows them to travel during night [v21].
+
