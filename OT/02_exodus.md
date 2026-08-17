@@ -114,3 +114,11 @@ Sunday, August 16th, 2026
 * Moses retrieves Joseph's bones before leaving so the promise their forefathers made to Joseph would be kept (Gen 50:25) [v19].
 * Yahweh goes before the Israelites and leads as a cloud pillar during the day and a fire pillar at night. The fire pillar gives light and allows them to travel during night [v21].
 
+## Chapter 14
+### Israel crosses the Red Sea and Pharaoh's army defeated
+Monday, August 17th, 2026
+* The Israelites camp in front of [Pi-hahiroth](https://en.wikipedia.org/wiki/Pi-HaHiroth) and [Baal-zephon](https://en.wikipedia.org/wiki/Baal-zephon) [v1].
+* The Israelites cry out to Moses in fear when they see the Egyptians surrounding them [v11].
+* Yahweh hardens Pharaoh's heart once again to show the Egyptians that He is Yahweh [v17].
+* Were there two beings: an angel and Yahweh as the pillar? Either they are the same or the two beings move to be between the Israelites and the Egyptians [v19].
+* Yahweh clogs the chariot wheels when the Egyptians are pursuing between the sea walls [v25].
