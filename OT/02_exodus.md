@@ -115,10 +115,21 @@ Sunday, August 16th, 2026
 * Yahweh goes before the Israelites and leads as a cloud pillar during the day and a fire pillar at night. The fire pillar gives light and allows them to travel during night [v21].
 
 ## Chapter 14
-### Israel crosses the Red Sea and Pharaoh's army defeated
+### Israel crosses the sea and Pharaoh's army defeated
 Monday, August 17th, 2026
 * The Israelites camp in front of [Pi-hahiroth](https://en.wikipedia.org/wiki/Pi-HaHiroth) and [Baal-zephon](https://en.wikipedia.org/wiki/Baal-zephon) [v1].
 * The Israelites cry out to Moses in fear when they see the Egyptians surrounding them [v11].
 * Yahweh hardens Pharaoh's heart once again to show the Egyptians that He is Yahweh [v17].
 * Were there two beings: an angel and Yahweh as the pillar? Either they are the same or the two beings move to be between the Israelites and the Egyptians [v19].
 * Yahweh clogs the chariot wheels when the Egyptians are pursuing between the sea walls [v25].
+
+## Chapter 15
+### Song of victory and leaving the sea
+Tuesday, August 18th, 2026
+* "Yahweh is a man of war" [v3].
+* "Who is like Yahweh among the gods?" [v11]
+* Yahweh loves the people He has saved [v13].
+* The song says Philistia, Edom, Moab, and Canaan fear the power of Yahweh [v14-16].
+* [Miriam](https://en.wikipedia.org/wiki/Miriam), Aaron and Moses' sister, leads the women in song and dance.
+* After crossing the water, the Israelites enter the wilderness of [Shur](https://en.wikipedia.org/wiki/Shur_(Bible)) and then [Marah](https://en.wikipedia.org/wiki/Marah_(Bible)). The water is bitter here, so Moses's prays Yahweh, He shows Moses a log, Moses throws in it the water, and the water becomes sweet.
+* They leave and enter [Elim](https://en.wikipedia.org/wiki/Elim_(place)), which has water springs and trees.
