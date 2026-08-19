@@ -129,7 +129,7 @@ Tuesday, August 18th, 2026
 * "Yahweh is a man of war" [v3].
 * "Who is like Yahweh among the gods?" [v11]
 * Yahweh loves the people He has saved [v13].
-* The song says Philistia, Edom, Moab, and Canaan fear the power of Yahweh [v14-16].
+* The song says [Philistia](https://en.wikipedia.org/wiki/Philistia), [Edom](https://en.wikipedia.org/wiki/Edom), [Moab](https://en.wikipedia.org/wiki/Moab), and [Canaan](https://en.wikipedia.org/wiki/Canaan) fear the power of Yahweh [v14-16].
 * [Miriam](https://en.wikipedia.org/wiki/Miriam), Aaron and Moses' sister, leads the women in song and dance.
 * After crossing the water, the Israelites enter the wilderness of [Shur](https://en.wikipedia.org/wiki/Shur_(Bible)) and then [Marah](https://en.wikipedia.org/wiki/Marah_(Bible)). The water is bitter here, so Moses's prays Yahweh, He shows Moses a log, Moses throws in it the water, and the water becomes sweet.
 * They leave and enter [Elim](https://en.wikipedia.org/wiki/Elim_(place)), which has water springs and trees.
