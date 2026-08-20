@@ -133,3 +133,12 @@ Tuesday, August 18th, 2026
 * [Miriam](https://en.wikipedia.org/wiki/Miriam), Aaron and Moses' sister, leads the women in song and dance.
 * After crossing the water, the Israelites enter the wilderness of [Shur](https://en.wikipedia.org/wiki/Shur_(Bible)) and then [Marah](https://en.wikipedia.org/wiki/Marah_(Bible)). The water is bitter here, so Moses's prays Yahweh, He shows Moses a log, Moses throws in it the water, and the water becomes sweet.
 * They leave and enter [Elim](https://en.wikipedia.org/wiki/Elim_(place)), which has water springs and trees.
+
+## Chapter 16
+### Yahweh sends provisions as the Israelites complain
+* Yahweh tests the Israelites if they will only eat the manna as He has prescribed [v4-5].
+* Moses tell the Israelites that their grumbling is against Yahweh, not him and Aaron [v8].
+* Yahweh sends quail in the evening and manna in the morning [v13-15].
+* Manna is described like a sweet white coriander seed [v31].
+* Yahweh commands that some manna be saved away in a jar and placed before Him to be kept throughout the following generations [v33-34].
+* The people would gather an [omer](https://en.wikipedia.org/wiki/Omer_(unit)) of manna everyday except the Sabbath day and the day before. On the day before Sabbath, they would gather 2 omers. On the Sabbath they would gather none. An omer equates to roughly 1/2 to 1 US gallon. [v16-26]
