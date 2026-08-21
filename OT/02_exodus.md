@@ -136,9 +136,20 @@ Tuesday, August 18th, 2026
 
 ## Chapter 16
 ### Yahweh sends provisions as the Israelites complain
+Thursday, August 20th, 2026
 * Yahweh tests the Israelites if they will only eat the manna as He has prescribed [v4-5].
 * Moses tell the Israelites that their grumbling is against Yahweh, not him and Aaron [v8].
 * Yahweh sends quail in the evening and manna in the morning [v13-15].
 * Manna is described like a sweet white coriander seed [v31].
 * Yahweh commands that some manna be saved away in a jar and placed before Him to be kept throughout the following generations [v33-34].
 * The people would gather an [omer](https://en.wikipedia.org/wiki/Omer_(unit)) of manna everyday except the Sabbath day and the day before. On the day before Sabbath, they would gather 2 omers. On the Sabbath they would gather none. An omer equates to roughly 1/2 to 1 US gallon. [v16-26]
+
+## Chapter 17
+### Water from a rock and fighting the Amalekites
+Friday, August 21st, 2026
+* The Israelites go from the Wilderness of Sin to [Rephidim](https://en.wikipedia.org/wiki/Rephidim). With no water there, the people almost mutiny against Moses [v4].
+* Yahweh instructs Moses to strike a rock on [Mt. Horeb](https://en.wikipedia.org/wiki/Mount_Horeb) for water to come out, which he does [v6].
+* Due to the people's arguing, Moses names two places there [Massah and Meribah](https://en.wikipedia.org/wiki/Massah_and_Meribah) [v7].
+* Under Moses' instructions, [Joshua](https://en.wikipedia.org/wiki/Joshua) leads the Israelites to fight the [Amalekites](https://en.wikipedia.org/wiki/Amalek) at Rephidim [v9].
+* Moses holds his staff on top of a hill overlooking the battle. When he would lift his staff, the battle would be in Joshua's favor. When he lowered his staff, the battle would be in the Amalekite's favor. Aaron and someone named [Hur](https://en.wikipedia.org/wiki/Hur_(Bible)) let Moses sit on a rock and they held Moses's hands up for the rest of the day until the Israelites prevailed [v11-13].
+* Yahweh says He will have war with the Amalekites for more generations [v16].
