@@ -153,3 +153,10 @@ Friday, August 21st, 2026
 * Under Moses' instructions, [Joshua](https://en.wikipedia.org/wiki/Joshua) leads the Israelites to fight the [Amalekites](https://en.wikipedia.org/wiki/Amalek) at Rephidim [v9].
 * Moses holds his staff on top of a hill overlooking the battle. When he would lift his staff, the battle would be in Joshua's favor. When he lowered his staff, the battle would be in the Amalekite's favor. Aaron and someone named [Hur](https://en.wikipedia.org/wiki/Hur_(Bible)) let Moses sit on a rock and they held Moses's hands up for the rest of the day until the Israelites prevailed [v11-13].
 * Yahweh says He will have war with the Amalekites for more generations [v16].
+
+## Chapter 18
+### Moses' father-in-law visits
+Saturday, August 22nd, 2026
+* Moses' father-in-law Jethro (aka Reuel) had sent Moses' wife and their two sons home during the Israelite's exodus. Jethro was now bringing them back to Moses [v2-5].
+* Jethro praises Yahweh for delivering the Israelites [v10]. Jethro says he now knows that Yahweh is greater than all gods because in this affair they dealt arrogantly with the people [v11]. It is unclear who _they_ is here. It could be the Egyptians since Nehemiah 9:10 uses similar wording and refers to the Egyptians.
+* Jethro tells Moses to delegate judgment responsibilities and construct a hierarchal system, such that only the most important issues trickle up to him [v21-22].
