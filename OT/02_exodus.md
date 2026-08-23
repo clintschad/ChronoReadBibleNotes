@@ -137,6 +137,7 @@ Tuesday, August 18th, 2026
 ## Chapter 16
 ### Yahweh sends provisions as the Israelites complain
 Thursday, August 20th, 2026
+* The Israelites leave Elim and arrive in the [Wilderness of Sin](https://en.wikipedia.org/wiki/Wilderness_of_Sin).
 * Yahweh tests the Israelites if they will only eat the manna as He has prescribed [v4-5].
 * Moses tell the Israelites that their grumbling is against Yahweh, not him and Aaron [v8].
 * Yahweh sends quail in the evening and manna in the morning [v13-15].
@@ -147,7 +148,7 @@ Thursday, August 20th, 2026
 ## Chapter 17
 ### Water from a rock and fighting the Amalekites
 Friday, August 21st, 2026
-* The Israelites go from the Wilderness of Sin to [Rephidim](https://en.wikipedia.org/wiki/Rephidim). With no water there, the people almost mutiny against Moses [v4].
+* The Israelites leave the Wilderness of Sin and arrive in [Rephidim](https://en.wikipedia.org/wiki/Rephidim). With no water there, the people almost mutiny against Moses [v4].
 * Yahweh instructs Moses to strike a rock on [Mt. Horeb](https://en.wikipedia.org/wiki/Mount_Horeb) for water to come out, which he does [v6].
 * Due to the people's arguing, Moses names two places there [Massah and Meribah](https://en.wikipedia.org/wiki/Massah_and_Meribah) [v7].
 * Under Moses' instructions, [Joshua](https://en.wikipedia.org/wiki/Joshua) leads the Israelites to fight the [Amalekites](https://en.wikipedia.org/wiki/Amalek) at Rephidim [v9].
@@ -160,3 +161,15 @@ Saturday, August 22nd, 2026
 * Moses' father-in-law Jethro (aka Reuel) had sent Moses' wife and their two sons home during the Israelite's exodus. Jethro was now bringing them back to Moses [v2-5].
 * Jethro praises Yahweh for delivering the Israelites [v10]. Jethro says he now knows that Yahweh is greater than all gods because in this affair they dealt arrogantly with the people [v11]. It is unclear who _they_ is here. It could be the Egyptians since Nehemiah 9:10 uses similar wording and refers to the Egyptians.
 * Jethro tells Moses to delegate judgment responsibilities and construct a hierarchal system, such that only the most important issues trickle up to him [v21-22].
+
+## Chapter 19
+### Yahweh descends on Mount Sinai
+Sunday, August 23rd, 2026
+* The Israelites leave Rephidim and go into the wilderness of Sinai, camping before [Mt. Sinai](https://en.wikipedia.org/wiki/Mount_Sinai_(Bible)) [v1-3].
+* Yahweh states that the Israelites will be His treasured people, for all the earth is His [v5].
+* Yahweh says the Israelite nation will be a holy nation of priests [v6].
+* Yahweh tells Moses that the people need to consecrate themselves for three days later He will come down on the mountain [v10-11].
+* The people are not to go on or touch the edge of the mountain, with the punishment of death [v13].
+* Looking at Yahweh will result in death [v21].
+* Yahweh tells Moses, the only one on the mountain, to also bring up Aaron [v24].
+
