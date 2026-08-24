@@ -176,7 +176,7 @@ Sunday, August 23rd, 2026
 ## Chapter 20
 ### Yahweh gives Moses His Ten Commandments
 Monday, August 24th, 2026
-* Yahweh tells of His love to those who keep his commandments [v6].
+* Yahweh tells of His love to those who keep His commandments [v6].
 * Yahweh claims He is the Creator [v11].
 * Moses was near a thick darkness when he was speaking to Yahweh [v21].
 * Yahweh commands His altars to be of earth or of un-hewn stones. Yahweh also commands there to be no steps up to the altar so their "nakedness be not exposed on it" [v26]. This mention of nakedness might allude to how Canaanite worship could include worshipping in the nude, as well as their altars having steps.
