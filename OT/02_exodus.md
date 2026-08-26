@@ -185,3 +185,14 @@ Monday, August 24th, 2026
 ### Misc laws
 Tuesday, August 25th, 2026
 * Striking or cursing a parent is a capital offense [v15, 17].
+
+## Chapter 22
+### Misc laws: livestock, crops, and social issues
+Wednesday, August 26th, 2026
+* Sorceresses automatically have the death penalty [v18].
+* Beastiality has the death penalty [v19].
+* Sacrificing to another god appears to have the death penalty [v20].
+* Sojourners are not to be mistreated since the Israelites were sojourners themselves in Egypt [v22].
+* Yahweh has compassion [v27].
+* Governmental authorities are not to be cursed [v28].
+* Animals that have already been torn by other animals in the field are not to be eaten [v31].
