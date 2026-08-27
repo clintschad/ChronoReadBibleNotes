@@ -196,3 +196,28 @@ Wednesday, August 26th, 2026
 * Yahweh has compassion [v27].
 * Governmental authorities are not to be cursed [v28].
 * Animals that have already been torn by other animals in the field are not to be eaten [v31].
+
+## Chapter 23
+### Misc laws and plans to conquer Canaan
+Thursday, August 27th, 2026
+* Help your enemy if his donkey or ox is in trouble [v4].
+* Every seven years, let the crop fields and vineyards rest, and allow the poor folk and beasts to graze [v10].
+* Don't even mention the names of the other gods [v13].
+* Three feasts a year were to be kept:
+  - Feast of Unleavened Bread, remembering Passover and Yahweh rescuing them from Egypt
+  - Feast of Harvest, the first harvest
+  - Feast of Ingathering, the end of harvest
+* Do not boil a young goat in its mother's milk [v19]. This may be a reference to a Canaanite fertility-cult practice. There may be a mention in the Ugaritic text _The Birth of the Fair and Beautiful Gods_.
+* Yahweh sends an angel to guard the Israelites as they travel to Canaan. The adversaries in the way of the Israelites listed are [v23]
+  - [Amorites](https://en.wikipedia.org/wiki/Amorites), possibly including giants/nephilim
+  - [Hittites](https://en.wikipedia.org/wiki/Hittites)
+  - [Perizzites](https://en.wikipedia.org/wiki/Perizzites)
+  - [Canaanites](https://en.wikipedia.org/wiki/Canaan#Canaanites)
+  - [Hivites](https://en.wikipedia.org/wiki/Hivites)
+  - [Jebusites](https://en.wikipedia.org/wiki/Jebusites)
+* No sickness or miscarriage in the new land [v25-26].
+* Yahweh says he will drive out their enemies slowly, not quickly [v29-30].
+* The borders of the new land will be from the Red Sea to the Sea of the Philistines; from the wilderness to the Euphrates [v31].
+* The Israelites are not to make any covenant with the people in the land or their gods [v32].
+* The Israelites are to kick them out entirely out of the land [v33].
+  
