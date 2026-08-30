@@ -227,3 +227,12 @@ Friday, August 28th, 2026
 * Moses writes down everything Yahweh has told him in the _Book of the Covenant_ and reads it to the people. The people agree to what Yahweh has said, Moses throws blood on the people, and a covenant between Yahweh and the Israelites is established [v7-8].
 * Moses, Aaron, [Nadab](https://en.wikipedia.org/wiki/Nadab_and_Abihu), [Abihu](https://en.wikipedia.org/wiki/Nadab_and_Abihu), and seventy elders of Israel worship Yahweh from afar, and they "see" and "behold" the Elohim of Israel. The passage notes that under Elohim's feet appeared something like a "pavement" of very clear sapphire [v9-10].
 * Moses goes up to Yahweh alone to get the stone tablets. The mountain is covered by a cloud for 6 days and Moses doesn't go in until the 7th day. Then the cloud changes to have the "appearance of fire" and Moses walks in [v16-18].
+
+## Chapter 25
+### Pieces for the tabernacle
+* [Ark of the Covenant](https://en.wikipedia.org/wiki/Ark_of_the_Covenant)
+  - Cherubim [v18-20] (same beings Yahweh placed at the entrance to Eden once Adam and Eve left)
+  - Yahweh will meet with Moses on the Ark lid between the Cherubim [v22]. This sounds odd.
+* Table for the [Bread of Presence](https://en.wikipedia.org/wiki/Showbread)
+* Golden Lampstand / [Menorah](https://en.wikipedia.org/wiki/Temple_menorah)
+* Misc note - the Ark and the table have pure gold rings where the carrying poles go through. Would these pure gold rings be strong enough to bear the weight since pure gold is malleable?
