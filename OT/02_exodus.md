@@ -230,9 +230,16 @@ Friday, August 28th, 2026
 
 ## Chapter 25
 ### Pieces for the tabernacle
+Sunday, August 30th, 2026
 * [Ark of the Covenant](https://en.wikipedia.org/wiki/Ark_of_the_Covenant)
   - Cherubim [v18-20] (same beings Yahweh placed at the entrance to Eden once Adam and Eve left)
   - Yahweh will meet with Moses on the Ark lid between the Cherubim [v22]. This sounds odd.
 * Table for the [Bread of Presence](https://en.wikipedia.org/wiki/Showbread)
 * Golden Lampstand / [Menorah](https://en.wikipedia.org/wiki/Temple_menorah)
 * Misc note - the Ark and the table have pure gold rings where the carrying poles go through. Would these pure gold rings be strong enough to bear the weight since pure gold is malleable?
+
+## Chapter 26
+### Tabernacle design
+Monday, August 31st, 2026
+* No notes
+
