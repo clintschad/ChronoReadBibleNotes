@@ -243,3 +243,7 @@ Sunday, August 30th, 2026
 Monday, August 31st, 2026
 * No notes
 
+## Chapter 27
+### Other tabernacle pieces
+Tuesday, September 1st, 2026
+* Bronze altar, court, and oil for the lamp.
