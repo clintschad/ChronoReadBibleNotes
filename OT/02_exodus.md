@@ -247,3 +247,12 @@ Monday, August 31st, 2026
 ### Other tabernacle pieces
 Tuesday, September 1st, 2026
 * Bronze altar, court, and oil for the lamp.
+
+## Chapter 28
+### Priest garment design
+Wednesday, September 2nd, 2026
+* Breastplate of judgement [v15].
+* Urim and Thummim [are parts of the breastplate](https://en.wikipedia.org/wiki/Urim_and_Thummim) [v30].
+* There are bells on the collar of the garment so its sounds protects him and Yahweh doesn't kill him [v35].
+* The priest is to wear a gold plate on his forehead inscribed with "Holy to Yahweh" [v37].
+* The priests are to wear linen underwear if they are in the tabernacle else Yahweh will kill them [v42-43].
