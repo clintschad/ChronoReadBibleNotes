@@ -256,3 +256,15 @@ Wednesday, September 2nd, 2026
 * There are bells on the collar of the garment so its sounds protects him and Yahweh doesn't kill him [v35].
 * The priest is to wear a gold plate on his forehead inscribed with "Holy to Yahweh" [v37].
 * The priests are to wear linen underwear if they are in the tabernacle else Yahweh will kill them [v42-43].
+
+## Chapter 29
+### Priest ordination
+Thursday, September 3rd, 2026
+* Offerings that Aaron and his sons will make to Yahweh:
+  * bull - sin offering [v10-14]
+  * ram - burnt and food offering [v15-18]
+  * ram - wave and burnt offering. They are to also boil some of its flesh and eat it with bread. Any of this meat not eaten by next morning is to be burned. [v19-34]
+* Ordination of the priest takes seven days. Each day a bull is offered as a sin offering [v35-36].
+* Whatever touches the altar becomes holy [v37].
+* Two lambs are to be offered to Yahweh as burnt offerings every day: one in the morning and the other at twilight [v38-39].
+* Yahweh says He will dwell among the people [v46].
