@@ -268,3 +268,10 @@ Thursday, September 3rd, 2026
 * Whatever touches the altar becomes holy [v37].
 * Two lambs are to be offered to Yahweh as burnt offerings every day: one in the morning and the other at twilight [v38-39].
 * Yahweh says He will dwell among the people [v46].
+
+## Chapter 30
+### Altar of incense, census tax, and bronze wash basin, and anointing oil and incense
+Thursday, September 10th, 2026
+* The incense altar is mainly for burning incense, but once a year, blood of the sin offering is to be offered on it [v10].
+* If the priest didn't wash his hands and feet when going into the tent of meeting or before going near the altar to make a burnt offering, he would die [v20-21].
+* The sacred anointing oil was to be applied to the tent of meeting, the ark, the table and its utensils, the incense altar, the burnt offering altar, and the basin. This made them holy, as with anything touching the oil becoming holy [v26-28]. The oil was to also be applied to Aaron and his sons to ordain them as priests.
