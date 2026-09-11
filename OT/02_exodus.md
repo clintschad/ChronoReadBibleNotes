@@ -280,10 +280,10 @@ Thursday, September 10th, 2026
 ### Constructors of the Tabernacle and keeping the Sabbath
 Friday, September 11th, 2026
 * Main designers and craftsmen of the tabernacle and its furnishings:
-  - Bezalel, son of Uri, son of Hur, tribe of Judah [v2].
-  - Oholiab, son of Ahisamach, tribe of Dan [v6].
+  - [Bezalel](https://en.wikipedia.org/wiki/Bezalel), son of Uri, son of Hur, tribe of Judah [v2].
+  - [Oholiab](https://en.wikipedia.org/wiki/Oholiab), son of Ahisamach, tribe of Dan [v6].
 * _Spirit of God_ mentioned [v3].
 * Yahweh has given to all able men the capability to contribute to building the tabernacle and it's furnishings [v6].
 * Breaking the Sabbath results in death as punishment [v15].
 * Yahweh says he created heaven and earth [v17].
-* Yahweh gives the stone tablets to Moses, which were written by the finger of Yahweh [v18].
+* Yahweh gives the [stone tablets](https://en.wikipedia.org/wiki/Tablets_of_Stone) to Moses, which were written by the [finger of Yahweh](https://en.wikipedia.org/wiki/Finger_of_God) [v18].
