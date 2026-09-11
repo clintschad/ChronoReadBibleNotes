@@ -275,3 +275,15 @@ Thursday, September 10th, 2026
 * The incense altar is mainly for burning incense, but once a year, blood of the sin offering is to be offered on it [v10].
 * If the priest didn't wash his hands and feet when going into the tent of meeting or before going near the altar to make a burnt offering, he would die [v20-21].
 * The sacred anointing oil was to be applied to the tent of meeting, the ark, the table and its utensils, the incense altar, the burnt offering altar, and the basin. This made them holy, as with anything touching the oil becoming holy [v26-28]. The oil was to also be applied to Aaron and his sons to ordain them as priests.
+
+## Chapter 31
+### Constructors of the Tabernacle and keeping the Sabbath
+Friday, September 11th, 2026
+* Main designers and craftsmen of the tabernacle and its furnishings:
+  - Bezalel, son of Uri, son of Hur, tribe of Judah [v2].
+  - Oholiab, son of Ahisamach, tribe of Dan [v6].
+* _Spirit of God_ mentioned [v3].
+* Yahweh has given to all able men the capability to contribute to building the tabernacle and it's furnishings [v6].
+* Breaking the Sabbath results in death as punishment [v15].
+* Yahweh says he created heaven and earth [v17].
+* Yahweh gives the stone tablets to Moses, which were written by the finger of Yahweh [v18].
