@@ -287,3 +287,16 @@ Friday, September 11th, 2026
 * Breaking the Sabbath results in death as punishment [v15].
 * Yahweh says he created heaven and earth [v17].
 * Yahweh gives the [stone tablets](https://en.wikipedia.org/wiki/Tablets_of_Stone) to Moses, which were written by the [finger of Yahweh](https://en.wikipedia.org/wiki/Finger_of_God) [v18].
+
+## Chapter 32
+### The golden calf
+Sunday, September 13th, 2026
+* After Moses had been away on the mountain for some time, the people told Aaron to make gods for them. Aaron makes a golden calf for them, including an altar [v1-5].
+* Yahweh tells Moses about the people and their golden calf and tells Moses to leave him alone for He is angry and will destroy those people. However, Moses talks Yahweh out of it [v7-14].
+* Joshua doesn't seem to be aware of the calf since he thinks the people are shouting for war [v17].
+* Moses breaks the tablets out of anger when he sees the people dancing around the calf [v19].
+* Moses burns the calf, grinds it into powder, and makes the people drink it [v20].
+* Moses confronts his brother Aaron, but Aaron deflects and doesn't take responsibility [v21-24].
+* The people had gotten out of control, so Moses rallies the Levites to each kill a brother, friend, and neighbor [v25-28].
+* Moses asks Yahweh to remove him from Yahweh's _book_ if He doesn't forgive the people. Yahweh responds He will remove those who sinned against him. What is this book or record? If this is the historical record, perhaps Moses is asking not to be associated with the people who disobeyed Him. If this is the Book of Life, Moses is asking to have his name removed from it and to keep the people's names in, which would be the ultimate sacrifice. Currently I hold to the first interpretation [v32-34].
+* Yahweh sends a plague on the people as another punishment [v35].
