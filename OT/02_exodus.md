@@ -300,3 +300,10 @@ Sunday, September 13th, 2026
 * The people had gotten out of control, so Moses rallies the Levites to each kill a brother, friend, and neighbor [v25-28].
 * Moses asks Yahweh to remove him from Yahweh's _book_ if He doesn't forgive the people. Yahweh responds He will remove those who sinned against him. What is this book or record? If this is the historical record, perhaps Moses is asking not to be associated with the people who disobeyed Him. If this is the Book of Life, Moses is asking to have his name removed from it and to keep the people's names in, which would be the ultimate sacrifice. Currently I hold to the first interpretation [v32-34].
 * Yahweh sends a plague on the people as another punishment [v35].
+
+## Chapter 33
+### Moses talks with Yahweh and intercedes for the Israelites
+Monday, September 14th, 2026
+* Yahweh tells Moses that He will not be among the people as they travel to their destination so He doesn't consume them. Yahweh also commands the people to take off their ornaments [v1-6].
+* When Yahweh would talk with Moses, the cloud pillar would descend to a "tent of meeting" that Moses pitched far outside the camp. Yahweh would speak with Moses as when one speaks to his friend face to face [v7-11].
+* Moses asks Yahweh for His presence to go with them as they travel to the promised land. Moses tells Yahweh that He being with them is what makes them different from the other nations. Moses asks Yahweh to see His glory. Yahweh says Moses can only see His back, for man cannot see His face and live [v12-23].
