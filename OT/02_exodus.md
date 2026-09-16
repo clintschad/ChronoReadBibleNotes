@@ -307,3 +307,14 @@ Monday, September 14th, 2026
 * Yahweh tells Moses that He will not be among the people as they travel to their destination so He doesn't consume them. Yahweh also commands the people to take off their ornaments [v1-6].
 * When Yahweh would talk with Moses, the cloud pillar would descend to a "tent of meeting" that Moses pitched far outside the camp. Yahweh would speak with Moses as when one speaks to his friend face to face [v7-11].
 * Moses asks Yahweh for His presence to go with them as they travel to the promised land. Moses tells Yahweh that He being with them is what makes them different from the other nations. Moses asks Yahweh to see His glory. Yahweh says Moses can only see His back, for man cannot see His face and live [v12-23].
+
+## Chapter 34
+### The stone tablets are remade
+Wednesday, September 16th, 2026
+* Yahweh oftentimes descends in a cloud to communicate with Moses [v5].
+* Yahweh in cloud form descends to Moses and _proclaims_ His name a couple times [v6].
+* Moses asks Yahweh if He will go in the midst of the people again and to pardon their sin [v9].
+* Yahweh tells Moses when they are in the promised land to tear down their [Asherim](https://en.wikipedia.org/wiki/Asherah_pole), the plural form of the word for the cult objects of [Asherah](https://en.wikipedia.org/wiki/Asherah).
+* Moses was with Yahweh on Mount Sinai for 40 days and nights, neither eating bread nor drinking water [v28].
+* Yahweh tells Moses to write down the terms of His covenant with Israel, calling these the Ten Commandments [v28].
+* Moses' face shone very brightly from talking with Yahweh that when he came down from the mountain, Aaron and the people were afraid to go near him [v29-30].
