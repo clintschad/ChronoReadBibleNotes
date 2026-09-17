@@ -318,3 +318,10 @@ Wednesday, September 16th, 2026
 * Moses was with Yahweh on Mount Sinai for 40 days and nights, neither eating bread nor drinking water [v28].
 * Yahweh tells Moses to write down the terms of His covenant with Israel, calling these the Ten Commandments [v28].
 * Moses' face shone very brightly from talking with Yahweh that when he came down from the mountain, Aaron and the people were afraid to go near him [v29-30].
+
+## Chapter 35
+### Sabbath rules and Tabernacle construction contribution
+Thursday, September 17th, 2026
+* Sabbath day - no work, else punishment is death. No making fire on the Sabbath either [v2-3].
+* Moses _asks_ the people to "chip in" and help with the construction of the tabernacle and its pieces, whether it be using a skill for crafting something or contributing a necessary material. The emphasis is that this was _asked_ of the people, and there were people willing to help [v10-29].
+* Moses says Yahweh has filled Bezalel, one of the lead craftsmen, with His Spirit, giving him the crafting skill necessary for constructing the Tabernacle and its pieces. Yahweh has given to both Bezalel and Oholiab the skill to teach, in addition to their crafting abilities [v30-35].
