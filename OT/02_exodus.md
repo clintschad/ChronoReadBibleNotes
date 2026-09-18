@@ -325,3 +325,9 @@ Thursday, September 17th, 2026
 * Sabbath day - no work, else punishment is death. No making fire on the Sabbath either [v2-3].
 * Moses _asks_ the people to "chip in" and help with the construction of the tabernacle and its pieces, whether it be using a skill for crafting something or contributing a necessary material. The emphasis is that this was _asked_ of the people, and there were people willing to help [v10-29].
 * Moses says Yahweh has filled Bezalel, one of the lead craftsmen, with His Spirit, giving him the crafting skill necessary for constructing the Tabernacle and its pieces. Yahweh has given to both Bezalel and Oholiab the skill to teach, in addition to their crafting abilities [v30-35].
+
+## Chapter 36
+### Tabernacle construction
+Friday, September 18th, 2026
+* The people end up contributing more than enough materials to the Tabernacle construction that Moses has to tell them to stop [v3-7].
+
