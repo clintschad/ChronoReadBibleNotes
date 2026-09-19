@@ -331,3 +331,7 @@ Thursday, September 17th, 2026
 Friday, September 18th, 2026
 * The people end up contributing more than enough materials to the Tabernacle construction that Moses has to tell them to stop [v3-7].
 
+## Chapter 37 - Construction of the Ark, table, lampstand, and altar of incense
+Saturday, September 19th, 2026
+* Bezalel constructs the Ark, table, lampstand, and altar of incense.
+
