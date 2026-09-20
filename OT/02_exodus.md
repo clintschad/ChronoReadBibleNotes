@@ -336,5 +336,6 @@ Saturday, September 19th, 2026
 * Bezalel constructs the Ark, table, lampstand, and altar of incense.
 
 ## Chapter 38 - Constructing the altar of burnt offering, the bronze basin, and the court
+Sunday, September 20th, 2026
 * Altar of burnt offering was constructed of acacia wood with pieces of it overlaid with bronze [v1-2].
 * Record of quantities of metals used [v21-31].
