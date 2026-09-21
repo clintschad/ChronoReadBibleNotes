@@ -339,3 +339,7 @@ Saturday, September 19th, 2026
 Sunday, September 20th, 2026
 * Altar of burnt offering was constructed of acacia wood with pieces of it overlaid with bronze [v1-2].
 * Record of quantities of metals used [v21-31].
+
+## Chapter 39 - The priest garments are made and the pieces of the Tabernacle are ready
+Monday, September 21st, 2026
+* The last verse sounds like a sigh of relief and accomplishment. Constructing the pieces of the tabernacle sounds like it was a large effort, and according to Moses they had finally completed Yahweh's task [v43].
