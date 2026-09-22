@@ -298,7 +298,7 @@ Sunday, September 13th, 2026
 * Moses burns the calf, grinds it into powder, and makes the people drink it [v20].
 * Moses confronts his brother Aaron, but Aaron deflects and doesn't take responsibility [v21-24].
 * The people had gotten out of control, so Moses rallies the Levites to each kill a brother, friend, and neighbor [v25-28].
-* Moses asks Yahweh to remove him from Yahweh's _book_ if He doesn't forgive the people. Yahweh responds He will remove those who sinned against him. What is this book or record? If this is the historical record, perhaps Moses is asking not to be associated with the people who disobeyed Him. If this is the Book of Life, Moses is asking to have his name removed from it and to keep the people's names in, which would be the ultimate sacrifice. Currently I hold to the first interpretation [v32-34].
+* Moses asks Yahweh to remove him from Yahweh's _book_ if He doesn't forgive the people. Yahweh responds He will remove those who sinned against him. What is this book or record? If this is the historical record, perhaps Moses is asking not to be associated with the people who disobeyed Him. If this is the Book of Life, Moses is asking to have his name removed from it and to keep the people's names in, which would be the ultimate sacrifice. Currently I hold to the second interpretation since the Bible appears to only reference a Book of Life [v32-34].
 * Yahweh sends a plague on the people as another punishment [v35].
 
 ## Chapter 33
