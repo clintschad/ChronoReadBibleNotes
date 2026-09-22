@@ -347,4 +347,4 @@ Monday, September 21st, 2026
 ## Chapter 40 - The Tabernacle is setup
 Tuesday, September 22nd, 2026
 * Tabernacle is erected on the first day of the year [v1].
-* The Tabernacle is technically the enclosed tent within the larger curtained-off courtyard. This is also called the _tent of meeting_. Before, Moses would pitch a tent called the _tent of meeting_ outside the camp where Yahweh would descend to in cloud form and talk to Moses [Ch33:7-11]. Now Yahweh would descend to this Tabernacle tent in the courtyard. When the cloud "parked" over the Tabernacle tent, the people would stay. When the cloud would move, the people would move and follow it.
+* The Tabernacle is technically the enclosed tent within the larger curtained-off courtyard. This is also called the _tent of meeting_. Before, Moses would pitch a tent called the _tent of meeting_ outside the camp where Yahweh would descend to in cloud form and talk to Moses [Ch33:7-11]. Now Yahweh would descend to this Tabernacle tent in the courtyard. When the cloud "parked" over the Tabernacle tent, the people would stay. When the cloud would move, the people would move and follow it [v34-38].
