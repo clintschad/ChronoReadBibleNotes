@@ -20,3 +20,9 @@ Saturday, September 26th, 2026
 * The fat of the animal, including the tail, was to be burnt on the altar [v9-11].
 * This is also a _food offering_ [v9].
 * The people were to not consume fat or blood [v17].
+
+## Chapter 4 - Sin offering laws
+Sunday, September 27th, 2026
+* The sin offering is to receive forgiveness from Yahweh for _unintentionally_ disobeying His commandments [v2, 13, 22, 27].
+* The offering depends on the person requesting forgiveness: a priest or the whole congregation of Israel require a bull, a leader requires a male goat, and a commoner requires a female goat or lamb. While not explicitly stated for the congregation offering, the rest explicitly state the animal to be without blemish.
+* The person making the offering request is to slaughter the animal at the Tabernacle entrance. The priest then takes some of the blood into the Tabernacle and sprinkles it in front of the veil of the Holy of Holies seven times. The priest also puts some on the horns of the altar of incense and pours the rest at its base. The priest also takes all the fat and burns it on the altar. The rest of the undesirable parts he takes to a clean place outside the camp and burns them. The priest will make atonement for the requester for his sin, and he will be forgiven.
