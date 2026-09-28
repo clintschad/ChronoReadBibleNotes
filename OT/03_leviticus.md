@@ -27,7 +27,7 @@ Sunday, September 27th, 2026
 * The offering depends on the person requesting forgiveness: a priest or the whole congregation of Israel require a bull, a leader requires a male goat, and a commoner requires a female goat or lamb. While not explicitly stated for the congregation offering, the rest explicitly state the animal to be without blemish.
 * The person making the offering request is to slaughter the animal at the Tabernacle entrance. The priest then takes some of the blood into the Tabernacle and sprinkles it in front of the veil of the Holy of Holies seven times. The priest also puts some on the horns of the altar of incense and pours the rest at its base. The priest also takes all the fat and burns it on the altar. The rest of the undesirable parts he takes to a clean place outside the camp and burns them. The priest will make atonement for the requester for his sin, and he will be forgiven.
 
-# Chapter 5 - More sin offerings and guilt offering
+## Chapter 5 - More sin offerings and guilt offering
 Monday, September 28th, 2026
 * Trespasses listed: not testifying [v1], touching a dead unclean animal [v2], human uncleanness [v3], rash oath [v4].
 * If any of these trespasses are made, the person is to bring a sin offering to Yahweh for the priest to make atonement for his sin [v6]. Depending on what the sinner could afford, this could range from a female lamb, to two turtledoves or pigeons, to fine flour.
