@@ -32,3 +32,10 @@ Monday, September 28th, 2026
 * Trespasses listed: not testifying [v1], touching a dead unclean animal [v2], human uncleanness [v3], rash oath [v4].
 * If any of these trespasses are made, the person is to bring a sin offering to Yahweh for the priest to make atonement for his sin [v6]. Depending on what the sinner could afford, this could range from a female lamb, to two turtledoves or pigeons, to fine flour.
 * Guilt offering - offering for an unintentional sin against Yahweh, specifically in holy matters. The sinner was to offer a valuable ram without blemish and make restitution. The priest makes atonement for the sinner and he would be forgiven.
+
+## Chapter 6 - More on offerings
+Tuesday, September 29th, 2026
+* To receive forgiveness for stealing, the person must restore to whomever they stole 1.2x and make a guilt offering [v2-7].
+* The fire on the burnt offering altar never goes out [v13].
+* Whatever touches the bread from the food offerings will become holy. Usually the priests eat this bread [v16-18].
+* Under certain circumstances, the priest may eat the sin offering [v24-30].
