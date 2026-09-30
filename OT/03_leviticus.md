@@ -39,3 +39,15 @@ Tuesday, September 29th, 2026
 * The fire on the burnt offering altar never goes out [v13].
 * Whatever touches the bread from the food offerings will become holy. Usually the priests eat this bread [v16-18].
 * Under certain circumstances, the priest may eat the sin offering [v24-30].
+
+## Chapter 7 - More guilt offering, peace offering, and what not to consume
+Wednesday, September 30th, 2026
+* The priest who makes atonement for the guilt offering eats the skin if it's food or the bread if it's an offering that's baked. If it's flour, it's equally shared among the priests [v8-10].
+* Peace offerings - can be either an offering of thanksgiving [v12], promise/vow or freewill [v16], or a _wave offering [v29, 34].
+    - Thanksgiving offering consists of unleavened bread, unleavened wafers, and loaves of fine flour [v12]. The priest receives one loaf from each and must eat them before the next morning [v14-15].
+    - The vow and freewill offerings are similar, except the priest can eat up to two days later [v16-17].
+    - For the wave offering, the person waves the breast with the fat before Yahweh. The priest burns the fat but keeps and consumes the breast and right thigh [v29-36].
+* Anything that is food or could be food that touches an unclean thing is to be burned [v19].
+* Fat from ox, sheep, or goat is not to be eaten [v23].
+* Animal blood is not be consumed [v26].
+
