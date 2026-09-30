@@ -49,5 +49,5 @@ Wednesday, September 30th, 2026
     - For the wave offering, the person waves the breast with the fat before Yahweh. The priest burns the fat but keeps and consumes the breast and right thigh [v29-36].
 * Anything that is food or could be food that touches an unclean thing is to be burned [v19].
 * Fat from ox, sheep, or goat is not to be eaten [v23].
-* Animal blood is not be consumed [v26].
+* Animal blood is not to be consumed [v26].
 
