@@ -51,3 +51,8 @@ Wednesday, September 30th, 2026
 * Fat from ox, sheep, or goat is not to be eaten [v23].
 * Animal blood is not to be consumed [v26].
 
+## Chapter 8 - The ordination of Aaron and his sons
+Thursday, October 1st, 2026
+* The Urim and Thummim in the high priest's breastplate are mentioned [v8].
+* In the ordination of Aaron and his sons to become priests, Moses places blood on each person's right ear, right thumb, and right big toe [v23-24].
+* Aaron and his sons must stay at the entrance of the Tabernacle (tent of meeting) for seven days for the ordination to be complete; otherwise they will die. [v33-35]
