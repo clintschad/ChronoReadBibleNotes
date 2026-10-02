@@ -56,3 +56,8 @@ Thursday, October 1st, 2026
 * The Urim and Thummim in the high priest's breastplate are mentioned [v8].
 * In the ordination of Aaron and his sons to become priests, Moses places blood on each person's right ear, right thumb, and right big toe [v23-24].
 * Aaron and his sons must stay at the entrance of the Tabernacle (tent of meeting) for seven days for the ordination to be complete; otherwise they will die. [v33-35]
+
+## Chapter 9 - Aaron makes sacrifices to Yahweh
+Friday, October 2nd, 2026
+* Moses tells Aaron to make multiple sacrifices to Yahweh. He also tells Aaron that Yahweh will appear to them [v4].
+* After offering the sacrifices and blessing the people, Moses and Aaron go in and then out of the Tabernacle. They bless the people (again?) and the glory of Yahweh appears to all them. Fire comes out from before Yahweh and consumes the offerings on the altar. When the people see it, they shout and fall on their faces [v22-34].
