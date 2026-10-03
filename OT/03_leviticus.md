@@ -61,3 +61,13 @@ Thursday, October 1st, 2026
 Friday, October 2nd, 2026
 * Moses tells Aaron to make multiple sacrifices to Yahweh. He also tells Aaron that Yahweh will appear to them [v4].
 * After offering the sacrifices and blessing the people, Moses and Aaron go in and then out of the Tabernacle. They bless the people (again?) and the glory of Yahweh appears to all them. Fire comes out from before Yahweh and consumes the offerings on the altar. When the people see it, they shout and fall on their faces [v22-34].
+
+## Chapter 10 - The death of Nadab and Abihu
+Saturday, October 3rd, 2026
+* Notable people:
+    - Aaron's sons: [Nadab, Abihu](https://en.wikipedia.org/wiki/Nadab_and_Abihu), [Eleazar](https://en.wikipedia.org/wiki/Eleazar), and [Ithamar](https://en.wikipedia.org/wiki/Ithamar)
+    - Aaron's uncle [Uzziel](https://en.wikipedia.org/wiki/Uzziel) and his sons [Mishael](https://en.wikipedia.org/wiki/List_of_minor_Hebrew_Bible_figures,_L%E2%80%93Z#Mishael) and [Elzaphan](https://en.wikipedia.org/wiki/List_of_minor_Hebrew_Bible_figures,_A%E2%80%93K#Elzaphan)
+* Yahweh Himself tells Aaron not to drink alcohol in the Tabernacle [v9].
+* There's an interesting exchange between Moses and Aaron at the end. Moses asks why didn't his other sons Eleazar and Ithamar eat the sin offering as commanded. Aaron responds that they did most of it by burning it, but then Aaron asks Moses would Yahweh have approved if he (Aaron) had eaten the sin offering? Some people speculate Aaron's asking if Yahweh would have approved him eating the food with a sad heart. In either case, Moses agrees.
+
+
