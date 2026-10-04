@@ -70,4 +70,7 @@ Saturday, October 3rd, 2026
 * Yahweh Himself tells Aaron not to drink alcohol in the Tabernacle [v9].
 * There's an interesting exchange between Moses and Aaron at the end. Moses asks why didn't his other sons Eleazar and Ithamar eat the sin offering as commanded. Aaron responds that they did most of it by burning it, but then Aaron asks Moses would Yahweh have approved if he (Aaron) had eaten the sin offering? Some people speculate Aaron's asking if Yahweh would have approved him eating the food with a sad heart. In either case, Moses agrees.
 
-
+## Chapter 11 - Dietary restrictions and handling of animal carcasses
+Sunday, October 4th, 2026
+* Covers which animals are clean and unclean. Also covers when someone or something becomes unclean, e.g. touching the carcass of a clean animal makes one unclean. It also covers how to handle animal carcasses when they come into contact with something or someone.
+* Yahweh says since He is holy, His people need to be holy [v44-45].
