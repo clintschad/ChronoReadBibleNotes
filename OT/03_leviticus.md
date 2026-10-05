@@ -74,3 +74,9 @@ Saturday, October 3rd, 2026
 Sunday, October 4th, 2026
 * Covers which animals are clean and unclean. Also covers when someone or something becomes unclean, e.g. touching the carcass of a clean animal makes one unclean. It also covers how to handle animal carcasses when they come into contact with something or someone.
 * Yahweh says since He is holy, His people need to be holy [v44-45].
+
+## Chapter 12 - Purification after pregnancy
+Monday, October 5th, 2026
+* A woman, after childbirth, was unclean. For a son, the mother was unclean for 40 days. For a daughter, the mother was unclean for 80 days. After these days were up, she had to bring to the priest a burnt and a sin offering for the priest to make atonement for her.
+* Unsure what the priest had to atone for. What is the mother's sin?
+
