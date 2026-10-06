@@ -80,3 +80,9 @@ Monday, October 5th, 2026
 * A woman, after childbirth, was unclean. For a son, the mother was unclean for 40 days. For a daughter, the mother was unclean for 80 days. After these days were up, she had to bring to the priest a burnt and a sin offering for the priest to make atonement for her.
 * Unsure what the priest had to atone for. What is the mother's sin?
 
+## Chapter 13 - Handling people and garments with a skin disease
+Tuesday, October 6th, 2026
+* The affected person or person with an affected garment goes to the priest.
+* The priest diagnoses if the affected skin area is actively diseased and if it's spreading. If so, he locks up the person for a week and checks later if it has progressed. If it hasn't, the person is clean. If it has, the priest sometimes locks up the person again and checks a week later if it has spread. If it hasn't subsided, the person is pronounced unclean.
+* The chapter doesn't go into detail on how to handle unclean persons, but there is a mention that the person will live alone outside of the camp as long as they are unclean [v46].
+* If garments have a skin disease, they are handled similarly by the priest. However, other treatments after the disease has stopped spreading are washing the garment and cutting out the affected area [v56]. If the disease continues spreading, the garment is to be burned [v57].
