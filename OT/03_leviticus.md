@@ -87,7 +87,7 @@ Tuesday, October 6th, 2026
 * The chapter doesn't go into detail on how to handle unclean persons, but there is a mention that the person will live alone outside of the camp as long as they are unclean [v46].
 * If garments have a skin disease, they are handled similarly by the priest. However, other treatments after the disease has stopped spreading are washing the garment and cutting out the affected area [v56]. If the disease continues spreading, the garment is to be burned [v57].
 
-## Chapter 14 - Laws for cleansing lepers
+## Chapter 14 - Laws for cleansing lepers and houses
 Wednesday, October 7th, 2026
 * If the leprous person is healed, the priest will go to them (who are outside of camp) and verify. Then there will be multiple wait periods and sacrifices throughout the cleansing process.
 * The first part of the process is to kill a clean bird, dip another clean bird along with cedarwood, scarlet yarn, and hyssop in its blood, and sprinkle the blood onto the leper [v4-7]
@@ -95,3 +95,6 @@ Wednesday, October 7th, 2026
 * In a subsequent sacrifice, the priest takes the blood of the sacrifice and places it on the right ear, right thumb, and right big toe of the leper [v14]. This is like what Moses did to the priests in their ordination in chapter 8. The priest repeats this but with oil instead [v17].
 * The priest offers a sin offering and makes atonement for the leper. For what sin does the priest do this? [v18-20].
 * The sacrifices the leper supplies can differ depending on what the leper can afford [v10, 21-22].
+* Yahweh speaks to Moses _and Aaron_ about house cleansing [v33].
+* The house cleansing process is similar to the garment cleansing process of chapter 13 in which the priest waits and sees if the infected spot is surface only and if it spreads. Instead of cutting out cloth, the parts of the wall will be removed to see if that stops the spread. If not, the entire is torn down and removed from the city (when they start building houses in Canaan) [v33-54].
+* After the priest has confirmed the disease in the house is gone, he will perform a sacrifice like the one for leprosy using two small birds, cedarwood, hyssop, and scarlet yarn [v49].
