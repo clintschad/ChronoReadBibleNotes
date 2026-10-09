@@ -98,3 +98,9 @@ Wednesday, October 7th, 2026
 * Yahweh speaks to Moses _and Aaron_ about house cleansing [v33].
 * The house cleansing process is similar to the garment cleansing process of chapter 13 in which the priest waits and sees if the infected spot is surface only and if it spreads. Instead of cutting out cloth, the parts of the wall will be removed to see if that stops the spread. If not, the entire is torn down and removed from the city (when they start building houses in Canaan) [v33-54].
 * After the priest has confirmed the disease in the house is gone, he will perform a sacrifice like the one for leprosy using two small birds, cedarwood, hyssop, and scarlet yarn [v49].
+
+## Chapter 15 - Laws for bodily discharges
+Friday, October 9th, 2026
+* Bodily discharge (some think like gonorrhea) requires a sin and burnt offering and the priest to make atonement after they've been cleansed [v14-15].
+* A man lying with a woman on her period becomes unclean for seven days himself [v24].
+* A woman who is menstruating out of cycle or longer than her cycle remains unclean until seven days after her last discharge. She then must bring a burnt and sin offering to the priest and the priest must make atonement for her [v29-30]. What is her sin?
