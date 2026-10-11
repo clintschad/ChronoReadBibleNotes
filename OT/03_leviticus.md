@@ -111,3 +111,8 @@ Saturday, October 10th, 2026
 * In the ritual, Aaron is to cast lots over two goats:
     - One goat is to be used as a sin offering. Aaron sprinkles its blood on and in front of the Ark of the Covenant and then makes atonement for the Holy of Holies (_Holy Place_) and the Tabernacle (_Tent of Meeting_). This re-consecrates the Holy of Holies and the Tabernacle since they dwell in the midst of the uncleaness of the people [v16]. Aaron uses this same goat's blood, as well as blood from a bull sacrifice, and places the blood on the altar horns and sprinkles some on top. This re-consecrates the altar for the same reason: "cleaning it" from being in the midst of the uncleaness of the people.
     - Aaron places both of his hands on the other (live) goat and confesses all the people's sins, transferring them to the goat [v21-22]. Someone then takes the goat away into the wilderness and then lets the goat free. Of interesting note, however, is that the goat is let go in the wilderness to [Azazel](https://en.wikipedia.org/wiki/Azazel). Is this a person or place?
+ 
+## Chapter 17 - Laws for where to sacrifice and consumption of blood
+Sunday, October 11th, 2026
+* The people had to make their animal sacrifice at the entrance of the Tabernacle [v4-5]. Apparently, some people were making sacrifices to [goat demons](https://en.wikipedia.org/wiki/Se'irim) [v7].
+* Blood has life in it, and on the altar it can be made to atone (cover/wash/cleanse) the soul [v11].
