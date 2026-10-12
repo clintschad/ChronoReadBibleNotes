@@ -116,3 +116,13 @@ Saturday, October 10th, 2026
 Sunday, October 11th, 2026
 * The people had to make their animal sacrifice at the entrance of the Tabernacle [v4-5]. Apparently, some people were making sacrifices to [goat demons](https://en.wikipedia.org/wiki/Se'irim) [v7].
 * Blood has life in it, and on the altar it can be made to atone (cover/wash/cleanse) the soul [v11].
+
+## Chapter 18 - Laws against sexual perversion
+Monday, October 12th, 2026
+* Yahweh tells the people (through Moses) not to follow the ways of the Egyptians nor the ways of the Canaanites [v3].
+* Most of the chapter is forbidding sexual relations between relatives, perhaps including step relatives.
+* Law against taking a woman as a rival wife to her sister while her sister is alive [v18]. What does this mean?
+* Law against sexual conduct with a woman on her period [v19].
+* Law against offering children to [Molech](https://en.wikipedia.org/wiki/Moloch) [v21]. Is this in a sexual context, e.g. temple prostitution, since this chapter is about sexual perversion? Or is this related to child sacrifice?
+* Law against homosexuality [v22] and bestiality [v23].
+* Doing these sexual acts of perversion makes the person unclean. The nations that are being driven out by Yahweh before the Israelites have done these things and they have made themselves unclean as well as the land they occupy. Yahweh has punished them and the land is _throwing them up_, perhaps due to their uncleanness [v24-28].
