@@ -136,3 +136,14 @@ Tuesday, October 13th, 2026
 * The fruit of a newly planted tree cannot be eaten until the fifth year [v23-25].
 * Similar to the land being affected by sexual sins, there's an allusion that prostitution causes the land to become depraved. [v29]
 * Do not interpret omens, fortunes, [v26] or use mediums or necromancers [v31].
+* _Love your neighbor as yourself_ phrase [v18].
+
+## Chapter 20 - Misc Statutes
+* If a person's family doesn't put the person who sacrifices their child to Molech to death, Yahweh will cut that family off from among the rest of the people. [v4-5]
+* Yahweh sanctifies His people [v7].
+* Homosexuality incurs the death penalty. [v13] Bestiality incurs the death penalty for both person and animal. [v15]
+* If a man and woman have sex on her period, both are to be cut off from the people. [v18]
+* Yahweh's statutes must be kept unless the land _vomits_ them out. [v22]
+* Yahweh detested the nations that had done these acts before. [v23]
+* The people are to be holy as Yahweh is holy. Yahweh's people are to be separate from the other peoples. [v25]
+* Mediums and necromancers incur the death penalty by stoning. [v27] 
