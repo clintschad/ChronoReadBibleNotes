@@ -146,4 +146,10 @@ Tuesday, October 13th, 2026
 * Yahweh's statutes must be kept unless the land _vomits_ them out. [v22]
 * Yahweh detested the nations that had done these acts before. [v23]
 * The people are to be holy as Yahweh is holy. Yahweh's people are to be separate from the other peoples. [v25]
-* Mediums and necromancers incur the death penalty by stoning. [v27] 
+* Mediums and necromancers incur the death penalty by stoning. [v27]
+
+## Chapter 21 - Laws for the Priests
+* The lower-level priests could only touch the dead of the their close family members. Exception wast the sister if she wasn't a virgin [v3]. A chief priest was even forbidden from this [v11].
+* The priests could only marry virgins [v7].
+* Sexually promiscuous daughters of priests incurred death penalty by fire [v9].
+* No descendant of Aaron with a blemish (e.g. blind, lame, dwarf, hunch back, injured hand, etc) can offer bread to Yahweh. [v17-23]
