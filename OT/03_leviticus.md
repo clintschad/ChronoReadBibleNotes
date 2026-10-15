@@ -149,7 +149,7 @@ Tuesday, October 13th, 2026
 * Mediums and necromancers incur the death penalty by stoning. [v27]
 
 ## Chapter 21 - Laws for the Priests
-* The lower-level priests could only touch the dead of the their close family members. Exception wast the sister if she wasn't a virgin [v3]. A chief priest was even forbidden from this [v11].
+* The lower-level priests could only touch the dead of the their close family members. Exception was the sister if she wasn't a virgin [v3]. A chief priest was even forbidden from this [v11].
 * The priests could only marry virgins [v7].
 * Sexually promiscuous daughters of priests incurred death penalty by fire [v9].
 * No descendant of Aaron with a blemish (e.g. blind, lame, dwarf, hunch back, injured hand, etc) can offer bread to Yahweh. [v17-23]
