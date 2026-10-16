@@ -139,6 +139,7 @@ Tuesday, October 13th, 2026
 * _Love your neighbor as yourself_ phrase [v18].
 
 ## Chapter 20 - Misc Statutes
+Wednesday, October 14th, 2026
 * If a person's family doesn't put the person who sacrifices their child to Molech to death, Yahweh will cut that family off from among the rest of the people. [v4-5]
 * Yahweh sanctifies His people [v7].
 * Homosexuality incurs the death penalty. [v13] Bestiality incurs the death penalty for both person and animal. [v15]
@@ -149,7 +150,16 @@ Tuesday, October 13th, 2026
 * Mediums and necromancers incur the death penalty by stoning. [v27]
 
 ## Chapter 21 - Laws for the Priests
+Thursday, October 15th, 2026
 * The lower-level priests could only touch the dead of the their close family members. Exception was the sister if she wasn't a virgin [v3]. A chief priest was even forbidden from this [v11].
 * The priests could only marry virgins [v7].
 * Sexually promiscuous daughters of priests incurred death penalty by fire [v9].
 * No descendant of Aaron with a blemish (e.g. blind, lame, dwarf, hunch back, injured hand, etc) can offer bread to Yahweh. [v17-23]
+
+## Chapter 22 - Laws for Food Offerings
+Friday, October 16th, 2026
+* The priests were not to eat the holy food of sacrifices when they were unclean. The consequence of this profanity was to bear sin and death. [v9-10]
+* Sojourners can make burnt offerings [v18].
+* (Most) animals with blemishes or from a foreigner cannot be offered as a sacrifice to Yahweh. [v17-25]
+* An ox or sheep and its young should not be killed the same day. [v28]
+* Thanksgiving sacrifices must be eaten the same day. [v29]
