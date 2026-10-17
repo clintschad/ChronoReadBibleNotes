@@ -163,3 +163,14 @@ Friday, October 16th, 2026
 * (Most) animals with blemishes or from a foreigner cannot be offered as a sacrifice to Yahweh. [v17-25]
 * An ox or sheep and its young should not be killed the same day. [v28]
 * Thanksgiving sacrifices must be eaten the same day. [v29]
+
+## Chapter 23 - Feasts of Yahweh
+Saturday, October 17th, 2026
+* Sabbath - end of every week. [v3]
+* Passover - first month, fourteenth day. [v5]
+* Feast of Unleavened Bread - starts the day after Passover and lasts for seven days. No work done on first and last day. Present food offering for seven days. [v6-8]
+* Feast of Firstfruits - after the Israelites make it into Canaan and after their first harvest, they are to offer to Yahweh the firstfruits of their harvest as a wave offering. They are also to make a burnt, food, and drink offering to Yahweh. This day involves eating. [v9-14]
+* Feast of Weeks - fifty days after the firstfruits, the people are to offer to Yahweh harvest, grain, burnt, drink, food, sin, peace, and wave offerings. See this chapter for details. No ordinary work done on this day. [v15-22]
+* Feast of Trumpets - seventh month, first day. Day of solemn rest, commemorate with blast of trumpets. No ordinary work done. Food offering made to Yahweh. [v23-25]. In post-exilic Judaism, the day would become known to be [_Rosh Hashanah_](https://en.wikipedia.org/wiki/Rosh_Hashanah), literally _Head of the Year_ or _New Year's Day_. This marked the end of an agricultural year and the start of another year.
+* Day of Atonement - seventh month, from evening of ninth day to the following evening. People are to fast, make a food offering, and do no work. This day is to also be treated as a Sabbath day. [v26-32]
+* Feast of Booths / Tabernacles - seventh month, fifteenth day, lasting eight days. No ordinary work. Present food offerings first seven days. First and eighth day are of solemn rest. For the first seven days, the people are to rejoice before Yahweh with fruit, palm branches, and willow branches [v40]. The people are also to dwell in tents for these seven days, since they lived in them when the left Egypt [v42-43].
