@@ -173,3 +173,10 @@ Saturday, October 17th, 2026
 * [Feast of Trumpets](https://en.wikipedia.org/wiki/Rosh_Hashanah) - seventh month, first day. Day of solemn rest, commemorate with blast of trumpets. No ordinary work done. Food offering made to Yahweh. [v23-25]. In post-exilic Judaism, the day would become known to be _Rosh Hashanah_, literally _Head of the Year_ or _New Year's Day_. This marked the end of an agricultural year and the start of another year.
 * [Day of Atonement ](https://en.wikipedia.org/wiki/Yom_Kippur) - _Yom Kippur_ in Hebrew. Seventh month, from evening of ninth day to the following evening. People are to fast, make a food offering, and do no work. This day is to also be treated as a Sabbath day. [v26-32]
 * [Feast of Booths](https://en.wikipedia.org/wiki/Sukkot) - seventh month, fifteenth day, lasting eight days. No ordinary work. Present food offerings first seven days. First and eighth day are of solemn rest. For the first seven days, the people are to rejoice before Yahweh with fruit, palm branches, and willow branches [v40]. The people are also to dwell in tents for these seven days, since they lived in them when the left Egypt [v42-43]. The feast is also known as _Sukkot_ and would later be known as _Feast of Tabernacles_ in the Second Temple Period.
+
+## Chapter 24 - Misc Laws
+Sunday, October 18th, 2026
+* The lamp in the Tabernacle runs continuously on olive oil. [v2-4]
+* Twelve loaves of bread, split into two groups of six loaves, is to be a food offering to Yahweh. Aaron and his sons will also eat it. [v5-9]
+* A woman's son blasphemes and curses _the Name_. They wait for Moses for his punishment, who says the punishment is stoning to death. [v10-16, 23]
+* Whoever kills someone shall be killed. Whoever kills an animal shall _make it good_ (give the owner another animal?). Whoever injures someone shall receive the same injury. [_eye for eye_](https://en.wikipedia.org/wiki/Eye_for_an_eye), _tooth for tooth_. This is also known as _law of retribution_ found in the Code of Hammurabi and other older Mesopotamian laws.
