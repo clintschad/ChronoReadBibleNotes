@@ -180,3 +180,8 @@ Sunday, October 18th, 2026
 * Twelve loaves of bread, split into two groups of six loaves, is to be a food offering to Yahweh. Aaron and his sons will also eat it. [v5-9]
 * A woman's son blasphemes and curses _the Name_. They wait for Moses for his punishment, who says the punishment is stoning to death. [v10-16, 23]
 * Whoever kills someone shall be killed. Whoever kills an animal shall _make it good_ (give the owner another animal?). Whoever injures someone shall receive the same injury. [_eye for eye_](https://en.wikipedia.org/wiki/Eye_for_an_eye), _tooth for tooth_. This is also known as _law of retribution_ found in the Code of Hammurabi and other older Mesopotamian laws.
+
+## Chapter 25 - 
+Monday, October 19th, 2026
+* The land has a Sabbath for Yahweh. In the seventh year, no sowing or reaping is done. The owner and his slaves can take of its food, though. It seems just that main work, such as sowing and main harvesting isn't done that year. [v2-7]
+* COMPLETE REST OF NOTES
