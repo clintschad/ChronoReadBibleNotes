@@ -181,7 +181,19 @@ Sunday, October 18th, 2026
 * A woman's son blasphemes and curses _the Name_. They wait for Moses for his punishment, who says the punishment is stoning to death. [v10-16, 23]
 * Whoever kills someone shall be killed. Whoever kills an animal shall _make it good_ (give the owner another animal?). Whoever injures someone shall receive the same injury. [_eye for eye_](https://en.wikipedia.org/wiki/Eye_for_an_eye), _tooth for tooth_. This is also known as _law of retribution_ found in the Code of Hammurabi and other older Mesopotamian laws.
 
-## Chapter 25 - 
+## Chapter 25 - The Year of Jubilee
 Monday, October 19th, 2026
-* The land has a Sabbath for Yahweh. In the seventh year, no sowing or reaping is done. The owner and his slaves can take of its food, though. It seems just that main work, such as sowing and main harvesting isn't done that year. [v2-7]
-* COMPLETE REST OF NOTES
+* The land has a Sabbath for Yahweh. In the seventh year, no sowing or reaping is done. The owner and his slaves can take of its food, though. It seems just that main work, such as sowing and main harvesting isn't done that year. [v2-7] Yahweh to provide extra harvest in the year before the Sabbath year. [v20-22]
+* Every fifty years is the [year of Jubilee](https://en.wikipedia.org/wiki/Jubilee_(biblical))
+    - No crops are sown or reaped. [v11]
+    - All slaves are freed and everyone returns to their own property. [v10]
+    - One buys land according to the number of years before Jubilee. The further Jubilee is out, the more one pays, and vice versa, since they'll be _renting_ the land longer. [v13-16] Essentially, people rent out their land or rent someone else's land for so many years until Jubilee where all land is returned.
+* A man is allowed to rent out his land if he needs the money, and then buy it back if he gets enough money. Otherwise he will have to wait until Jubilee. [v25-29]
+* Houses in walled cities, can be sold, and then bought back within a year. If not bought back within a year, the house belongs to the buyer forever and is not released in Jubilee. [v29-30]
+* Houses in villages with no walls can be bought back and released in Jubilee. [v31]
+* A Levite in a Levite city can buy back a house at any time, but the house will be released in Jubilee. [v32-33]
+* A Levite cannot sell pasture of a Levite city. [v34]
+* A brother in need is not to be charged interest or profit. If he sells himself to a sibling, he is not to become a slave but instead to become a hired hand until Jubilee. [v35-40]
+* The Israelites can buy slaves from other countries. [v44-46]
+* If an Israelite sells himself to a foreigner in Israel, their family can buy them back prorated by his remaining years of service until Jubilee. If he somehow attains enough money himself, he can pay off his debt and free himself. If not, he will eventually become free in Jubilee. [v47-54]
+* The Israelites are Yahweh's servants or slaves. [v55]
