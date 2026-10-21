@@ -182,7 +182,7 @@ Sunday, October 18th, 2026
 * Whoever kills someone shall be killed. Whoever kills an animal shall _make it good_ (give the owner another animal?). Whoever injures someone shall receive the same injury. [_eye for eye_](https://en.wikipedia.org/wiki/Eye_for_an_eye), _tooth for tooth_. This is also known as _law of retribution_ found in the Code of Hammurabi and other older Mesopotamian laws.
 
 ## Chapter 25 - The Year of Jubilee
-Monday, October 19th, 2026
+Monday, October 19th - 20th, 2026
 * The land has a Sabbath for Yahweh. In the seventh year, no sowing or reaping is done. The owner and his slaves can take of its food, though. It seems just that main work, such as sowing and main harvesting isn't done that year. [v2-7] Yahweh to provide extra harvest in the year before the Sabbath year. [v20-22]
 * Every fifty years is the [year of Jubilee](https://en.wikipedia.org/wiki/Jubilee_(biblical))
     - No crops are sown or reaped. [v11]
@@ -197,3 +197,12 @@ Monday, October 19th, 2026
 * The Israelites can buy slaves from other countries. [v44-46]
 * If an Israelite sells himself to a foreigner in Israel, their family can buy them back prorated by his remaining years of service until Jubilee. If he somehow attains enough money himself, he can pay off his debt and free himself. If not, he will eventually become free in Jubilee. [v47-54]
 * The Israelites are Yahweh's servants or slaves. [v55]
+
+## Chapter 26 - Results of Obeying and Disobeying Yahweh
+Tuesday, October 21st, 2026
+* Idols, erecting images and pillars, and bowing before figured stones are forbidden. [v1]
+* If Yahweh's commands are followed, the land will yield good harvests and the people will not be harmed by their enemies. [v3-10]
+* Yahweh will be and walk among the people if they follow His commandments. [v11-12]
+* If the people do not follow Yahweh's commands, the reverse will happen. The land will not yield crops and their enemies will conquer them. The more the people disobey His commands, the worse the punishments and conditions become. [v14-33] Yahweh may destroy the land so much that even their enemies will be appalled by the land. [v32]
+* It seems that special attention is made to _the land_, almost as if it's personified. While the people have been driven out of the land due to their disobedience, it will find rest. [v34-35, 43]
+* If the people turn from their ways, Yahweh will remember the covenant He made with their forefathers and not completely destroy them. [v40-45] However, it does not seem that they will get their land back. [v43]
