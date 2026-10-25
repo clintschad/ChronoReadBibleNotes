@@ -12,3 +12,13 @@ Friday, October 23rd, 2026
 Saturday, October 24th, 2026
 ![Israelite Camp Configuration](https://www.preceptaustin.org/sites/default/files/images/camp2.jpg)
 
+## Ch 03 - Duties of the Levites
+Sunday, October 25th, 2026
+* Yahweh takes all the Levites instead of all the firstborn. [v12]
+* Yahweh takes all the Levites' cattle instead of the firstborn cattle of the people. [v41]
+* Israel has the Levites and Yahweh has their firstborns. Yahweh wants to exchange His firstborns for all of Israel's Levites, but He has 273 more firstborns than Israel has Levites. So Yahweh sells the _excess_ firstborns to Israel at five shekels per person. This purchase is done by the people giving the money to Aaron and his sons. [v40-51]
+* Duties of the Levites, by camp position relative to the Tabernacle court:
+    - North: The Merarites guard and carry structural components of the tent and court (frames, bars, pillars, bases, pegs, cords, etc)
+    - South: The Kohathites guard and carry items within the Tabernacle (ark, table, lampstand, altars, vessels, and screen).
+    - East: Moses and the priests guard the Tabernacle sanctuary and protect Israel.
+    - West: The Gershonites guard and carry the coverings, hangings, and entrance screens of the tent and courtyard.
