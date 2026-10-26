@@ -18,7 +18,17 @@ Sunday, October 25th, 2026
 * Yahweh takes all the Levites' cattle instead of the firstborn cattle of the people. [v41]
 * Israel has the Levites and Yahweh has their firstborns. Yahweh wants to exchange His firstborns for all of Israel's Levites, but He has 273 more firstborns than Israel has Levites. So Yahweh sells the _excess_ firstborns to Israel at five shekels per person. This purchase is done by the people giving the money to Aaron and his sons. [v40-51]
 * Duties of the Levites, by camp position relative to the Tabernacle court:
-    - North: The Merarites guard and carry structural components of the tent and court (frames, bars, pillars, bases, pegs, cords, etc)
-    - South: The Kohathites guard and carry items within the Tabernacle (ark, table, lampstand, altars, vessels, and screen).
+    - North: The [Merarites](https://en.wikipedia.org/wiki/Merarites) guard and carry structural components of the tent and court (frames, bars, pillars, bases, pegs, cords, etc)
+    - South: The [Kohathites](https://en.wikipedia.org/wiki/Kohathites) guard and carry items within the Tabernacle (ark, table, lampstand, altars, vessels, and screen).
     - East: Moses and the priests guard the Tabernacle sanctuary and protect Israel.
-    - West: The Gershonites guard and carry the coverings, hangings, and entrance screens of the tent and courtyard.
+    - West: The [Gershonites](https://en.wikipedia.org/wiki/Gershonites) guard and carry the coverings, hangings, and entrance screens of the tent and courtyard.
+
+## Ch 04 - Pack and transport duties of the Levite clans
+Monday, October 26th, 2026
+* These duties were for the Kohathite, Gershonite, and Merarite men from 30-50 years old. [v3, 23]
+* Items the clans are responsible for packing and transporting:
+    - Kohathites: the Ark, Table of Presence, the Lampstand, the Altar [v4-15]
+    - Gershonites: the curtains of the Tabernacle and the courtyard walls [v24-26]
+    - Merarites: frame, lashings, pegs, etc of the Tabernacle and courtyard walls [v31-32]
+* Kohathites were not to touch [v15] or look at [v20] the holy Tabernacle items they were packing and transporting.
+* [Eleazar](https://en.wikipedia.org/wiki/Eleazar), son of Aaron, was in charge of lamp oil, anointing oil, incense, and grain offering. [v16]
