@@ -32,3 +32,9 @@ Monday, October 26th, 2026
     - Merarites: frame, lashings, pegs, etc of the Tabernacle and courtyard walls [v31-32]
 * Kohathites were not to touch [v15] or look at [v20] the holy Tabernacle items they were packing and transporting.
 * [Eleazar](https://en.wikipedia.org/wiki/Eleazar), son of Aaron, was in charge of lamp oil, anointing oil, incense, and grain offering. [v16]
+
+## Ch 05 - Test for Adultery
+Tuesday, October 27th, 2026
+* If a man suspects his wife of adultery, he is to bring her to the priest along with a grain offering. [v15] The priest creates a _water of bitterness_ by mixing dust from the Tabernacle floor with holy water. [v17-18] The priest makes the woman take an oath saying if she has committed adultery, then allow the bitter water to make her womb swell and her thigh fall away. [v21-22] The priest writes these _curses_ in a book, washes the curses into the bitter water, and makes her drink it, causing her pain. [v24] If the woman is guilty, her womb will swell, her thigh will fall away, and she will not be able to have children. If she is not guilty, she will be able to still have children. [v27-28]
+* [Wikipedia article](https://en.wikipedia.org/wiki/Ordeal_of_the_bitter_water).
+* What does the phrase _womb swell_ and _thigh fall away_ mean?
