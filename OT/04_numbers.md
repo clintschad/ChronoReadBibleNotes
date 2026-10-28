@@ -47,4 +47,5 @@ Wednesday, October 28th, 2026
     - cannot cut their hair or trim his beard.
     - cannot go near a dead body.
     - must offer multiple sacrifices upon completion of their time.
+    - upon completion of time, must shave hair at Tabernacle entrance and burn it with the peace offering.
 * The [priestly benediction](https://en.wikipedia.org/wiki/Priestly_Blessing) is at the end of the chapter.
