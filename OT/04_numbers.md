@@ -38,3 +38,13 @@ Tuesday, October 27th, 2026
 * If a man suspects his wife of adultery, he is to bring her to the priest along with a grain offering. [v15] The priest creates a _water of bitterness_ by mixing dust from the Tabernacle floor with holy water. [v17-18] The priest makes the woman take an oath saying if she has committed adultery, then allow the bitter water to make her womb swell and her thigh fall away. [v21-22] The priest writes these _curses_ in a book, washes the curses into the bitter water, and makes her drink it, causing her pain. [v24] If the woman is guilty, her womb will swell, her thigh will fall away, and she will not be able to have children. If she is not guilty, she will be able to still have children. [v27-28]
 * [Wikipedia article](https://en.wikipedia.org/wiki/Ordeal_of_the_bitter_water).
 * What does the phrase _womb swell_ and _thigh fall away_ mean?
+
+## Ch 06 - Nazirite Vows and Priestly Benediction
+Wednesday, October 28th, 2026
+* [Nazirite](https://en.wikipedia.org/wiki/Nazirite)
+    - a man or woman who is dedicating and consecrating themself to God for a time.
+    - cannot consume vinegar, strong drink, or any grape products.
+    - cannot cut their hair or trim his beard.
+    - cannot go near a dead body.
+    - must offer multiple sacrifices upon completion of their time.
+* The [priestly benediction](https://en.wikipedia.org/wiki/Priestly_Blessing) is at the end of the chapter.
