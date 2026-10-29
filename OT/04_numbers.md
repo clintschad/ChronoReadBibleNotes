@@ -49,3 +49,8 @@ Wednesday, October 28th, 2026
     - must offer multiple sacrifices upon completion of their time.
     - upon completion of time, must shave hair at Tabernacle entrance and burn it with the peace offering.
 * The [priestly benediction](https://en.wikipedia.org/wiki/Priestly_Blessing) is at the end of the chapter.
+
+## Ch 07 - Dedication Offerings for the Tabernacle's Altar
+* The offerings were for anointing and dedicating the altar of the Tabernacle [v10] and to be given to the Levites and used for service of the Tabernacle. [v5-6]
+* Each chief of the 12 tribes on different days offered silver and gold ware along with grain and oil. They also offered livestock. [v12-87]
+* Yahweh speaks to Moses from above the Ark of the Covenant between the two cherubim [v89].
