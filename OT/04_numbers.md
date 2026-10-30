@@ -54,3 +54,7 @@ Wednesday, October 28th, 2026
 * The offerings were for anointing and dedicating the altar of the Tabernacle [v10] and to be given to the Levites and used for service of the Tabernacle. [v5-6]
 * Each chief of the 12 tribes on different days offered silver and gold ware along with grain and oil. They also offered livestock. [v12-87]
 * Yahweh speaks to Moses from above the Ark of the Covenant between the two cherubim [v89].
+
+## Ch 08 - Cleansing of the Levites
+* The Levites were _cleansed_ before going into Tabernacle service for Yahweh. They were to be sprinkled with special water, completely shaven, the people of Israel to offer them as a wave offering, and the Levites themselves to offer two bulls as sin and burnt offerings. [v5-22]
+* The Levites served up until fifty years old and then retired, except for maintaining guard duty. [v23-26]
