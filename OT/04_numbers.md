@@ -51,10 +51,17 @@ Wednesday, October 28th, 2026
 * The [priestly benediction](https://en.wikipedia.org/wiki/Priestly_Blessing) is at the end of the chapter.
 
 ## Ch 07 - Dedication Offerings for the Tabernacle's Altar
+Thursday, October 29th, 2026
 * The offerings were for anointing and dedicating the altar of the Tabernacle [v10] and to be given to the Levites and used for service of the Tabernacle. [v5-6]
 * Each chief of the 12 tribes on different days offered silver and gold ware along with grain and oil. They also offered livestock. [v12-87]
 * Yahweh speaks to Moses from above the Ark of the Covenant between the two cherubim [v89].
 
 ## Ch 08 - Cleansing of the Levites
+Friday, October 30th, 2026
 * The Levites were _cleansed_ before going into Tabernacle service for Yahweh. They were to be sprinkled with special water, completely shaven, the people of Israel to offer them as a wave offering, and the Levites themselves to offer two bulls as sin and burnt offerings. [v5-22]
 * The Levites served up until fifty years old and then retired, except for maintaining guard duty. [v23-26]
+
+## Ch 09 - Passover Celebrated and Tabernacle Moving
+Sunday, November 1st, 2026
+* Some unclean men were barred from making their Passover sacrifice at the Tabernacle. [v7] Yahweh says they are not only allowed to but must keep these sacrifices and the passover. [v10-12]
+* A cloud would be over the Tabernacle during the day and _had the appearance of fire_ during the night. [v15-16] As long as the cloud was stopped and resting over the Tabernacle, the people setup camp and stayed there. When the could lifted, the people would pack up camp and follow the cloud. The cloud could be stopped for a day or for longer periods of time, e.g. a month or longer. [v21-22]
