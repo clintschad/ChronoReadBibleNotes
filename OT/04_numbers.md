@@ -65,3 +65,10 @@ Friday, October 30th, 2026
 Sunday, November 1st, 2026
 * Some unclean men were barred from making their Passover sacrifice at the Tabernacle. [v7] Yahweh says they are not only allowed to but must keep these sacrifices and the passover. [v10-12]
 * A cloud would be over the Tabernacle during the day and _had the appearance of fire_ during the night. [v15-16] As long as the cloud was stopped and resting over the Tabernacle, the people setup camp and stayed there. When the could lifted, the people would pack up camp and follow the cloud. The cloud could be stopped for a day or for longer periods of time, e.g. a month or longer. [v21-22]
+
+## Ch 10 - Leaving Mount Sinai
+Monday, November 2nd, 2026
+* [Two silver trumpets](https://en.wikipedia.org/wiki/Chazozra) were to be made. They were to be blown for summoning, breaking camp, warfare, feasts, and sacrifices. [v2-10]
+* As the Israelites finally leave Mount Sinai, [Hobab](https://en.wikipedia.org/wiki/List_of_minor_Hebrew_Bible_figures,_A%E2%80%93K#Hobab), son of [Jethro](https://en.wikipedia.org/wiki/Jethro_(biblical_figure)) (Moses' father-in-law), wants to return to his homeland, but Moses convinces him to stay with them on their journey since he knows the wilderness they're in. Moses also tells Hobab he will be blessed when the Israelites are blessed. [v29-32]
+* When the cloud that leads them would rest, Moses would say "Return, O LORD, to the ten thousand thousands of Israel." [v36]
+
