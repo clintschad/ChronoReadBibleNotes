@@ -72,3 +72,10 @@ Monday, November 2nd, 2026
 * As the Israelites finally leave Mount Sinai, [Hobab](https://en.wikipedia.org/wiki/List_of_minor_Hebrew_Bible_figures,_A%E2%80%93K#Hobab), son of [Jethro](https://en.wikipedia.org/wiki/Jethro_(biblical_figure)) (Moses' father-in-law), wants to return to his homeland, but Moses convinces him to stay with them on their journey since he knows the wilderness they're in. Moses also tells Hobab he will be blessed when the Israelites are blessed. [v29-32]
 * When the cloud that leads them would rest, Moses would say "Return, O LORD, to the ten thousand thousands of Israel." [v36]
 
+## Ch 11 - The People Complain for Meat
+Wednesday, November 4th, 2026
+* Yahweh burns some outlying parts of the camp when he hears the people complaining. Due to this, they name the place [Taberah](https://en.wikipedia.org/wiki/Taberah). [v1-3]
+* With everyone complaining about no meat to Moses and Yahweh being angry, Moses talks boldly to Yahweh telling Him his burden is too much. [v10-15]
+* Yahweh takes some of the _Spirit_ that is on Moses and places it on the seventy elders. The elders instantly prophesy for a bit and then stop. [v25]
+* Two men of the seventy who had not gone to the Tabernacle (where they were supposed to all meet to receive the Spirit) nonetheless received the Spirit and started prophesying in the camp. [v26]
+* Yahweh uses a wind to drop quail on both sides of the camp about a day's journey away. However, right before the people start to eat it, Yahweh sends a plague on the people and the people who craved the meat died and were buried there. They name the place [Kibroth-hattaavah](https://en.wikipedia.org/wiki/Kibroth_Hattaavah). [v31-34]
