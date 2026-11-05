@@ -79,3 +79,9 @@ Wednesday, November 4th, 2026
 * Yahweh takes some of the _Spirit_ that is on Moses and places it on the seventy elders. The elders instantly prophesy for a bit and then stop. [v25]
 * Two men of the seventy who had not gone to the Tabernacle (where they were supposed to all meet to receive the Spirit) nonetheless received the Spirit and started prophesying in the camp. [v26]
 * Yahweh uses a wind to drop quail on both sides of the camp about a day's journey away. However, right before the people start to eat it, Yahweh sends a plague on the people and the people who craved the meat died and were buried there. They name the place [Kibroth-hattaavah](https://en.wikipedia.org/wiki/Kibroth_Hattaavah). [v31-34]
+
+## Ch 12 - 
+Thursday, November 5th, 2026
+* Moses siblings, [Miriam](https://en.wikipedia.org/wiki/Miriam) and Aaron, speak out against Moses because of the [Cushite woman he had married](https://en.wikipedia.org/wiki/Zipporah#Numbers_12). They also appear jealous since they say, "Hasn't Yahweh also spoken to them before?" Upon hearing this, Yahweh summons all three of them to the Tabernacle and meets with them in His cloud form. [v1-5]
+* Yahweh says that for other prophets, He speaks through visions and dreams, but to Moses he speaks directly and clearly, and that Moses _beholds_ His form. Yahweh also mentions that Moses is faithful to him. [v6-8]
+* In His anger, Yahweh causes Miriam to have leprosy. Moses pleads with Yahweh to heal her. Yahweh responds that she at leasts needs to be cast out of camp for seven days and then she can be brought in again. I assume she is healed because He says she can be brought back in again. [v10-15]
