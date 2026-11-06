@@ -85,3 +85,18 @@ Thursday, November 5th, 2026
 * Moses siblings, [Miriam](https://en.wikipedia.org/wiki/Miriam) and Aaron, speak out against Moses because of the [Cushite woman he had married](https://en.wikipedia.org/wiki/Zipporah#Numbers_12). They also appear jealous since they say, "Hasn't Yahweh also spoken to them before?" Upon hearing this, Yahweh summons all three of them to the Tabernacle and meets with them in His cloud form. [v1-5]
 * Yahweh says that for other prophets, He speaks through visions and dreams, but to Moses he speaks directly and clearly, and that Moses _beholds_ His form. Yahweh also mentions that Moses is faithful to him. [v6-8]
 * In His anger, Yahweh causes Miriam to have leprosy. Moses pleads with Yahweh to heal her. Yahweh responds that she at leasts needs to be cast out of camp for seven days and then she can be brought in again. I assume she is healed because He says she can be brought back in again. [v10-15]
+
+## Ch 13 - Yahweh sends spies into Canaan
+Friday, November 6th, 2026
+* The [spies](https://en.wikipedia.org/wiki/The_Twelve_Spies) are chiefs from each of the twelve tribes. [v2-16]
+* They were to gather intel on the land: quality of the land (trees, fruit) and enemy information (strongholds, their strength, their numbers, etc). [v17-20] Their journey lasts forty days. [v25]
+* Route of the spies (from www.preceptaustin.org)
+
+![Route of the spies](https://www.preceptaustin.org/sites/default/files/images/spy.jpg)
+
+* They go from their camp in [Kadesh](https://en.wikipedia.org/wiki/Kadesh_(biblical)) to [Lebo-hamath](https://en.wikipedia.org/wiki/Labweh).
+* They pass through [Hebron](https://en.wikipedia.org/wiki/Hebron), where descendants of [Anak](https://en.wikipedia.org/wiki/Anak) who are from the [Nephilim](https://en.wikipedia.org/wiki/Nephilim) live. The text gives names of some of these descendants that live in Hebron. It is also mentioned that Hebron was built seven years before [Zoan](https://en.wikipedia.org/wiki/Zoan) was built in Egypt. [v22]
+* The spies bring back some grapes, figs, and pomegranates. The grapes they bring back are on a pole between two persons, so either there were many or they were very large. [v23-24]
+* Upon their return, the spies say the land is good but also that the enemies in it are strong and well fortified. [v27-28]
+* The spies seems afraid of the descendants of Anak, who are very large and are from the Nephilim. [v28, 33]
+* [Caleb](https://en.wikipedia.org/wiki/Caleb), however, is gung ho about taking the land. [v30]
