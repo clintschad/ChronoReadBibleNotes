@@ -86,7 +86,7 @@ Thursday, November 5th, 2026
 * Yahweh says that for other prophets, He speaks through visions and dreams, but to Moses he speaks directly and clearly, and that Moses _beholds_ His form. Yahweh also mentions that Moses is faithful to him. [v6-8]
 * In His anger, Yahweh causes Miriam to have leprosy. Moses pleads with Yahweh to heal her. Yahweh responds that she at leasts needs to be cast out of camp for seven days and then she can be brought in again. I assume she is healed because He says she can be brought back in again. [v10-15]
 
-## Ch 13 - Yahweh sends spies into Canaan
+## Ch 13 - Yahweh Sends Spies into Canaan
 Friday, November 6th, 2026
 * The [spies](https://en.wikipedia.org/wiki/The_Twelve_Spies) are chiefs from each of the twelve tribes. [v2-16]
 * They were to gather intel on the land: quality of the land (trees, fruit) and enemy information (strongholds, their strength, their numbers, etc). [v17-20] Their journey lasts forty days. [v25]
@@ -100,3 +100,9 @@ Friday, November 6th, 2026
 * Upon their return, the spies say the land is good but also that the enemies in it are strong and well fortified. [v27-28]
 * The spies seems afraid of the descendants of Anak, who are very large and are from the Nephilim. [v28, 33]
 * [Caleb](https://en.wikipedia.org/wiki/Caleb), however, is gung ho about taking the land. [v30]
+
+## Ch 14 - Mutiny of the People
+Saturday, November 7th, 2026
+* Fearing the people in the land of Canaan, the Israelites mutiny against Yahweh and Moses. Joshua and Caleb exclaim to the people that the land is very good and that Yahweh will protect them when they take it. The Israelites decide to stone Joshua and Caleb, but the glory of Yahweh shining from the Tabernacle stops them. [v1-12]
+* Yahweh wants to disinherit the people, put pestilence on them, and possibly restart with just Moses and his descendants [v12] but Moses convinces Him that the nations will say Yahweh killed His own people since He couldn't successfully bring them to the land He promised them. Moses also appeals to Yahweh using His past words: "He is slow to anger and abounding in steadfast love." Yahweh pardons the people, but says that everyone twenty years and older who grumbled against Him will not make it to the Promised land but will instead die in the wilderness. For their sin, they will also wander in the wilderness forty years. The exceptions Yahweh makes to this are Joshua and Caleb. The other ten spies die by plague before Yahweh. [v11-38]
+* When Moses tells the people these words, they mourn and decide to go to the Promised land anyway and fight. However, since Yahweh and Moses is not there with them, the Amalekites and Canaanites who live there kill them. [v39-45]
