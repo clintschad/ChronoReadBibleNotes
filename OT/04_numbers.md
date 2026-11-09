@@ -116,7 +116,7 @@ Sunday, November 8th, 2026
 
 ## Ch 16 - Rebellion of Korah, Dathan, and Abiram
 Monday, November 9th, 2026
-* Korah, Dathan, Abiram, and On rise up against Moses telling him that everyone is holy, so why does Moses exalt himself above everyone? [v1-3]
+* [Korah](https://en.wikipedia.org/wiki/Korah), [Dathan](https://en.wikipedia.org/wiki/Dathan), [Abiram](https://en.wikipedia.org/wiki/Abiram), and [On](https://en.wikipedia.org/wiki/List_of_minor_Hebrew_Bible_figures,_L%E2%80%93Z#On) rise up against Moses telling him that everyone is holy, so why does Moses exalt himself above everyone? [v1-3]
 * Moses tells Aaron, Korah, and all Korah's men to take censers with incense and Yahweh will show which people are His. [v16-18]
 * Yahweh tells Moses to tell the people to get away from the tents of Korah, Dathan, and Abiram. Moses tells the rebels that if Yahweh hasn't sent him, that they'll die normal deaths, otherwise the ground will swallow them up. After Moses finishes speaking, the ground under the rebels splits open and the rebels and all their possessions fall in with the ground closing back up. [v20-35]
 * Yahweh tells Moses to take the censers of the rebels and hammer them into a covering for the altar to remind the people that no one outside the descendants of Aaron can come near to burn incense to Yahweh. [v37-40]
