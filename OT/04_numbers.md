@@ -121,3 +121,8 @@ Monday, November 9th, 2026
 * Yahweh tells Moses to tell the people to get away from the tents of Korah, Dathan, and Abiram. Moses tells the rebels that if Yahweh hasn't sent him, that they'll die normal deaths, otherwise the ground will swallow them up. After Moses finishes speaking, the ground under the rebels splits open and the rebels and all their possessions fall in with the ground closing back up. [v20-35]
 * Yahweh tells Moses to take the censers of the rebels and hammer them into a covering for the altar to remind the people that no one outside the descendants of Aaron can come near to burn incense to Yahweh. [v37-40]
 * The next day the people complain that Moses killed the people of Yahweh. Yahweh starts a plague among the people but stops it after Moses tells Aaron to quickly take fire from the altar, place incense on it, and make atonement for the people. 14,700 people die in the plague. [v41-50]
+
+## Ch 17 - Aaron's Staff Buds
+Tuesday, November 10th, 2026
+* Yahweh directs Moses to gather staffs from the chiefs of the twelve tribes, with Aaron's staff being for the tribe of Levi. Moses is also directed to write each person's name on their staff. Whoever's staff buds is the man Yahweh chooses. Moses takes the staffs and places them in the Tabernacle. The next day, Moses goes in and sees that Aaron's staff has budded, blossomed, and produced almonds. Yahweh has thus chose and kept Aaron. Yahweh directs Moses to put Aaron's staff before the testimony (Ark?) as a reminder to the rebels who Yahweh has chosen. [v1-11]
+* The people are scared and say that anyone who comes near the Tabernacle will die. [v12-13]
