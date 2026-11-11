@@ -126,3 +126,10 @@ Monday, November 9th, 2026
 Tuesday, November 10th, 2026
 * Yahweh directs Moses to gather staffs from the chiefs of the twelve tribes, with Aaron's staff being for the tribe of Levi. Moses is also directed to write each person's name on their staff. Whoever's staff buds is the man Yahweh chooses. Moses takes the staffs and places them in the Tabernacle. The next day, Moses goes in and sees that Aaron's staff has budded, blossomed, and produced almonds. Yahweh has thus chose and kept Aaron. Yahweh directs Moses to put Aaron's staff before the testimony (Ark?) as a reminder to the rebels who Yahweh has chosen. [v1-11]
 * The people are scared and say that anyone who comes near the Tabernacle will die. [v12-13]
+
+## Ch 18 - Duties of Priests and Levites
+Wednesday, November 11th, 2026
+* The priests and the Levites are to bear the iniquity of the people as they work in close proximity to Yahweh and if anyone else is within close proximity of Yahweh, they will be killed. Because of this, they are also to act as guards to keep the rest of the Israelites away so they aren't killed by Yahweh due to their iniquity. [v1-8, 22]
+* The Levites receive all the contribution and tithes the people give to Yahweh and are in charge of it. Some of the food in the offerings is theirs. [v8-18] They also must themselves contribute some of the tithes they receive to Yahweh. [v25-32]
+* The portion from the people's contributions to Yahweh that the Levites and priests receive, is called a "covenant of salt". [v19]
+* The priests and Levites don't receive their own share of land in the Promised Land. [v20]
