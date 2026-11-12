@@ -133,3 +133,10 @@ Wednesday, November 11th, 2026
 * The Levites receive all the contribution and tithes the people give to Yahweh and are in charge of it. Some of the food in the offerings is theirs. [v8-18] They also must themselves contribute some of the tithes they receive to Yahweh. [v25-32]
 * The portion from the people's contributions to Yahweh that the Levites and priests receive, is called a "covenant of salt". [v19]
 * The priests and Levites don't receive their own share of land in the Promised Land. [v20]
+
+## Ch 19 - Water for Impurity
+Thursday, November 12th, 2026
+* The chapter describes a burnt sin offering, whose ashes are used in the [_water for impurity_](https://en.wikipedia.org/wiki/Water_of_lustration) to make unclean people or objects clean.
+* For the burnt sin offering, a [red heifer](https://en.wikipedia.org/wiki/Red_heifer) is slaughtered. The priest sprinkles its blood seven times towards the front of the Tabernacle. The heifer then is entirely burnt. While it's burning, cedarwood, hyssop, and scarlet yarn are thrown into the fire. [v2-6] The sprinkling and the objects (cedarwood, hyssop, and scarlet yarn...all reddish objects) are very similar to the leprous cleansing ritual of Leviticus 14.
+* The ashes of this burning are kept in a clean place outside of camp. [v9] The ashes are later to be used in water to cleanse people or objects who have become unclean by either coming close to or touching a dead body. [v11-22]
+* The water that is mixed with the ashes is called the _water for impurity_. [v9, 12, 18, 20-21] Retrospectively, this seems akin to _holy water_.
