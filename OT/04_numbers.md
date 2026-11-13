@@ -140,3 +140,9 @@ Thursday, November 12th, 2026
 * For the burnt sin offering, a [red heifer](https://en.wikipedia.org/wiki/Red_heifer) is slaughtered. The priest sprinkles its blood seven times towards the front of the Tabernacle. The heifer then is entirely burnt. While it's burning, cedarwood, hyssop, and scarlet yarn are thrown into the fire. [v2-6] The sprinkling and the objects (cedarwood, hyssop, and scarlet yarn...all reddish objects) are very similar to the leprous cleansing ritual of Leviticus 14.
 * The ashes of this burning are kept in a clean place outside of camp. [v9] The ashes are later to be used in water to cleanse people or objects who have become unclean by either coming close to or touching a dead body. [v11-22]
 * The water that is mixed with the ashes is called the _water for impurity_. [v9, 12, 18, 20-21] Retrospectively, this seems akin to _holy water_.
+
+## Ch 20 - Miriam and Aaron Pass Away
+Friday, November 13th, 2026
+* [Miriam](https://en.wikipedia.org/wiki/Miriam#), Moses' and Aaron's sister, passes away. [v1]
+* As the people complain for lack of water in the wilderness, Yahweh instructs Moses and Aaron to tell the rock before the people to yield its water, but Moses strikes the rock instead. Water still flows out, but Yahweh tells Moses and Aaron that since they did not believe in Him and uphold Him as holy in front of the people, they would not lead the people into the Promised land. The place or water there is called the _waters of Meribah_. _Meribah_ means _quarreling_. [v2-13]
+* Moses sends messengers to request safe passage through Edom, but Edom refuses. [v14-21] The people travel instead to Mt. Hor where Yahweh instructs Moses, Aaron, and his son Eleazar to go up it where Eleazar will take Aaron's priestly garments and Aaron will die there. Aaron passes away on top of the mountain. [v22-29]
