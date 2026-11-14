@@ -147,3 +147,9 @@ Friday, November 13th, 2026
 * [Miriam](https://en.wikipedia.org/wiki/Miriam#), Moses' and Aaron's sister, passes away. [v1]
 * As the people complain for lack of water in the wilderness, Yahweh instructs Moses and Aaron to tell the rock before the people to yield its water, but Moses strikes the rock instead. Water still flows out, but Yahweh tells Moses and Aaron that since they did not believe in Him and uphold Him as holy in front of the people, they would not lead the people into the Promised land. The place or water there is called the _waters of Meribah_. _Meribah_ means _quarreling_. [v2-13]
 * Moses sends messengers to request safe passage through Edom, but Edom refuses. [v14-21] The people travel instead to Mt. Hor where Yahweh instructs Moses, Aaron, and his son Eleazar to go up it where Eleazar will take Aaron's priestly garments and Aaron will die there. Aaron passes away on top of the mountain. [v22-29]
+
+## Ch 21 - 
+Saturday, November 14th, 2026
+* 
+* [Chemosh](https://en.wikipedia.org/wiki/Chemosh), the god of the Canaanites, is mentioned in the Israelite's victory song over the Amorites [v29].
+* 
