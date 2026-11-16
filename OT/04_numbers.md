@@ -148,8 +148,9 @@ Friday, November 13th, 2026
 * As the people complain for lack of water in the wilderness, Yahweh instructs Moses and Aaron to tell the rock before the people to yield its water, but Moses strikes the rock instead. Water still flows out, but Yahweh tells Moses and Aaron that since they did not believe in Him and uphold Him as holy in front of the people, they would not lead the people into the Promised land. The place or water there is called the _waters of Meribah_. _Meribah_ means _quarreling_. [v2-13]
 * Moses sends messengers to request safe passage through Edom, but Edom refuses. [v14-21] The people travel instead to Mt. Hor where Yahweh instructs Moses, Aaron, and his son Eleazar to go up it where Eleazar will take Aaron's priestly garments and Aaron will die there. Aaron passes away on top of the mountain. [v22-29]
 
-## Ch 21 - 
+## Ch 21 - Israelites conquer Arad, the Bronze Serpent, and Kings Sihon and Og Defeated
 Saturday, November 14th, 2026
-* 
+* The people again complain about food and water, so Yahweh sends _fiery_ serpents that bite people and some die. The people repent, tell Moses, Moses prays to Yahweh, Yahweh instructs Moses to make a [bronze serpent](https://en.wikipedia.org/wiki/Nehushtan), which he does. Any bitten person who looked at the serpent would live. [v4-9]
+* The [_*Book of the Wars of Yahweh*_](https://en.wikipedia.org/wiki/Book_of_the_Wars_of_the_Lord) is mentioned.
 * [Chemosh](https://en.wikipedia.org/wiki/Chemosh), the god of the Canaanites, is mentioned in the Israelite's victory song over the Amorites [v29].
-* 
+* The Israelites defeat [Sihon](https://en.wikipedia.org/wiki/Sihon), king of the Amorites, and [Og](https://en.wikipedia.org/wiki/Og), king of Bashan, and take their cities and land. Sihon's cities were [Jahaz](https://en.wikipedia.org/wiki/List_of_minor_biblical_places#Jahaz), [Heshbon](https://en.wikipedia.org/wiki/Heshbon), [Dibon](https://en.wikipedia.org/wiki/List_of_minor_biblical_places#Jahaz), Nophah, Medeba, and Og's city was Jazer.
