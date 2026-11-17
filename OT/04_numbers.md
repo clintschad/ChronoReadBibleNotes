@@ -154,3 +154,9 @@ Saturday, November 14th, 2026
 * The [_*Book of the Wars of Yahweh*_](https://en.wikipedia.org/wiki/Book_of_the_Wars_of_the_Lord) is mentioned.
 * [Chemosh](https://en.wikipedia.org/wiki/Chemosh), the god of the Canaanites, is mentioned in the Israelite's victory song over the Amorites [v29].
 * The Israelites defeat [Sihon](https://en.wikipedia.org/wiki/Sihon), king of the Amorites, and [Og](https://en.wikipedia.org/wiki/Og), king of Bashan, and take their cities and land. Sihon's cities were [Jahaz](https://en.wikipedia.org/wiki/List_of_minor_biblical_places#Jahaz), [Heshbon](https://en.wikipedia.org/wiki/Heshbon), [Dibon](https://en.wikipedia.org/wiki/List_of_minor_biblical_places#Jahaz), Nophah, Medeba, and Og's city was Jazer.
+
+## Ch 22 - King of Moab Summons Balaam
+Tuesday, November 17th, 2026
+* [Balak](https://en.wikipedia.org/wiki/Balak), king of Moab, sends elders to [Balaam](https://en.wikipedia.org/wiki/Balaam) to request that he curse the Israelites. Balak was afraid of how many Israelites there were. [v1-6]
+* Interestingly, Balaaam tells the elders "as Yahweh speaks to me" and tells the elders "Yahweh has refused to me go...". Also, Balaam says "Yahweh my God... Yahweh will speak to me." So Balaam is a follower of Yahweh? [v8,13,18-19]
+* Balaam's talking donkey incident. Interestingly, an angel blocks the donkey but Yahweh allows the donkey to talk. [v28] Yahweh also _opens_ Balaam's eyes so he sees the angel. [v31] Funny enough, the angel says he would've killed Balaam but let the donkey live. [v33]
