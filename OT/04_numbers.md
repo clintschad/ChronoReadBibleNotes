@@ -146,7 +146,7 @@ Thursday, November 12th, 2026
 Friday, November 13th, 2026
 * [Miriam](https://en.wikipedia.org/wiki/Miriam#), Moses' and Aaron's sister, passes away. [v1]
 * As the people complain for lack of water in the wilderness, Yahweh instructs Moses and Aaron to tell the rock before the people to yield its water, but Moses strikes the rock instead. Water still flows out, but Yahweh tells Moses and Aaron that since they did not believe in Him and uphold Him as holy in front of the people, they would not lead the people into the Promised land. The place or water there is called the _waters of Meribah_. _Meribah_ means _quarreling_. [v2-13]
-* Moses sends messengers to request safe passage through Edom, but Edom refuses. [v14-21] The people travel instead to Mt. Hor where Yahweh instructs Moses, Aaron, and his son Eleazar to go up it where Eleazar will take Aaron's priestly garments and Aaron will die there. Aaron passes away on top of the mountain. [v22-29]
+* Moses sends messengers to request safe passage through Edom via the [King's Highway](https://en.wikipedia.org/wiki/King's_Highway_(ancient)), but Edom refuses. [v14-21] The people travel instead to Mt. Hor where Yahweh instructs Moses, Aaron, and his son Eleazar to go up it where Eleazar will take Aaron's priestly garments and Aaron will die there. Aaron passes away on top of the mountain. [v22-29]
 
 ## Ch 21 - Israelites conquer Arad, Moses Makes the Bronze Serpent, and Kings Sihon and Og Defeated
 Saturday, November 14th, 2026
@@ -160,3 +160,7 @@ Tuesday, November 17th, 2026
 * [Balak](https://en.wikipedia.org/wiki/Balak), king of Moab, sends elders to [Balaam](https://en.wikipedia.org/wiki/Balaam) to request that he curse the Israelites. Balak was afraid of how many Israelites there were. [v1-6]
 * Interestingly, Balaaam tells the elders "as Yahweh speaks to me" and tells the elders "Yahweh has refused to me go...". Also, Balaam says "Yahweh my God... Yahweh will speak to me." So Balaam is a follower of Yahweh? [v8,13,18-19]
 * Balaam's talking donkey incident. Interestingly, an angel blocks the donkey but Yahweh allows the donkey to talk. [v28] Yahweh also _opens_ Balaam's eyes so he sees the angel. [v31] Funny enough, the angel says he would've killed Balaam but let the donkey live. [v33]
+
+## Ch 23 - The First Two Oracles of Balaam
+Wednesday, November 18th, 2026
+* Interestingly, Balaam intends to and directly communicates with Yahweh. He and King Balak sacrifice seven bulls and seven rams on seven altars (one bull and ram on each altar). Yahweh meets with Balaam, and He just tells Balaam that He will give him the words tell Balak. Balaam then returns to Balak and blesses Israel in front of him. This happens twice, the other time in another place that Balak brings Balaam to.
