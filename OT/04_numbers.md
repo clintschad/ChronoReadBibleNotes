@@ -164,3 +164,10 @@ Tuesday, November 17th, 2026
 ## Ch 23 - The First Two Oracles of Balaam
 Wednesday, November 18th, 2026
 * Interestingly, Balaam intends to and directly communicates with Yahweh. He and King Balak sacrifice seven bulls and seven rams on seven altars (one bull and ram on each altar). Yahweh meets with Balaam, and He just tells Balaam that He will give him the words tell Balak. Balaam then returns to Balak and blesses Israel in front of him. This happens twice, the other time in another place that Balak brings Balaam to.
+
+## Ch 24 - The Last Two Oracles of Balaam
+Thursday, November 19th, 2026
+* Balaam did not look for omens as he had done in the past. [v1]
+* The _Spirit of God_ came upon Balaam. [v2] Is this similar to the _Spirit_ that Yahweh takes from Moses and places on his seventy advisors in ch11?
+* Balaam's oracle mentions a king for Israel, though there is no king at this point. [v7]
+* In his final oracle, Balaam mentions that he "knows the knowledge of the Most High". [v16] What is Balaam's connection to Yahweh?
