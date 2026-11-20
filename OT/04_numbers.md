@@ -171,3 +171,12 @@ Thursday, November 19th, 2026
 * The _Spirit of God_ came upon Balaam. [v2] Is this similar to the _Spirit_ that Yahweh takes from Moses and places on his seventy advisors in ch11?
 * Balaam's oracle mentions a king for Israel, though there is no king at this point. [v7]
 * In his final oracle, Balaam mentions that he "knows the knowledge of the Most High". [v16] What is Balaam's connection to Yahweh?
+
+## Ch 25 - Yahweh Plagues Israel for Whoring After Moabite Women and Worshipping Their Gods
+Friday, November 20th, 2026
+* While in Shittim, the Israelites began to whore around with the Moabite women, while worshipping their gods, including Baal. Yahweh commands Moses to kill all the Israelite chiefs and Moses tells the judges to kill those who are worshipping Baal. [v1-5]
+* Baal is referred to as _Baal of Peor_. [v3,5,18] _Peor_ is also mentioned in Ch 23:28 as the top of a mountain where Moabite king Balak took Balaam to curse the Israelites.
+* Apparently, Yahweh has sent a plague among the Israelites with many of them dying (mentioned later in the passage), thus many people are at the entrance of the Tabernacle crying. [v6-7,9]
+* An Israelite man named Zimri brings a Midianite woman named Cozbi back in front of all the people and Phinehas kills both of them after following them into a chamber. [v6-8]
+* Due to his zeal, Yahweh promises to be peaceful to Phinehas's descendants as well as grant them priesthood forever. [v10-13]
+* Yahweh commands Moses to strike down the Midianites since they were seducing the men. [v17-18] Are the Midianite and Moabite women the same?
