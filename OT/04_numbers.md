@@ -180,3 +180,10 @@ Friday, November 20th, 2026
 * An Israelite man named Zimri brings a Midianite woman named Cozbi back in front of all the people and Phinehas kills both of them after following them into a chamber. [v6-8]
 * Due to his zeal, Yahweh promises to be peaceful to Phinehas's descendants as well as grant them priesthood forever. [v10-13]
 * Yahweh commands Moses to strike down the Midianites since they were seducing the men. [v17-18] Are the Midianite and Moabite women the same?
+
+## Ch 26 - WIP
+* The Israelites are in the plains of Moab, by the Jordan, at Jericho. (insert links!)
+* Eleazar seems to now be Moses right hand man. Yahweh also speaks to him, as He did to his father Aaron.
+* Korah (from ch xx) mentioned. Apparently, though, his sons lived.
+* More of Moses' family mentioned: Amram (father), Jochebed (mother).
+* From the census, the only person left when Yahweh said everyone from Egypt would die in the wilderness was Caleb and Joshua (and presumably Moses).
