@@ -172,7 +172,7 @@ Thursday, November 19th, 2026
 * Balaam's oracle mentions a king for Israel, though there is no king at this point. [v7]
 * In his final oracle, Balaam mentions that he "knows the knowledge of the Most High". [v16] What is Balaam's connection to Yahweh?
 
-## Ch 25 - Yahweh Plagues Israel for Whoring After Moabite Women and Worshipping Their Gods
+## Ch 25 - Zeal of Phineas
 Friday, November 20th, 2026
 * While in Shittim, the Israelites began to whore around with the Moabite women, while worshipping their gods, including Baal. Yahweh commands Moses to kill all the Israelite chiefs and Moses tells the judges to kill those who are worshipping Baal. [v1-5]
 * Baal is referred to as _Baal of Peor_. [v3,5,18] _Peor_ is also mentioned in Ch 23:28 as the top of a mountain where Moabite king Balak took Balaam to curse the Israelites.
@@ -181,9 +181,14 @@ Friday, November 20th, 2026
 * Due to his zeal, Yahweh promises to be peaceful to Phinehas's descendants as well as grant them priesthood forever. [v10-13]
 * Yahweh commands Moses to strike down the Midianites since they were seducing the men. [v17-18] Are the Midianite and Moabite women the same?
 
-## Ch 26 - WIP
-* The Israelites are in the plains of Moab, by the Jordan, at Jericho. (insert links!)
+## Ch 26 - Census of the New Generation
+* The Israelites are in the plains of Moab, by the Jordan, at [Jericho](https://en.wikipedia.org/wiki/Jericho).
 * Eleazar seems to now be Moses right hand man. Yahweh also speaks to him, as He did to his father Aaron.
-* Korah (from ch xx) mentioned. Apparently, though, his sons lived.
-* More of Moses' family mentioned: Amram (father), Jochebed (mother).
-* From the census, the only person left when Yahweh said everyone from Egypt would die in the wilderness was Caleb and Joshua (and presumably Moses).
+* Korah (from ch 16) is mentioned. Apparently, his sons lived.
+* More of Moses' father [Amram](https://en.wikipedia.org/wiki/Amram) and mother [Jochebed](https://en.wikipedia.org/wiki/Jochebed) are mentioned.
+* From the census, the only person left when Yahweh said everyone from Egypt would die in the wilderness is Caleb and Joshua (and presumably Moses).
+
+## Ch 27 - Joshua Succeeds Moses
+* The daughters of Zelophodad (descenedant of Joseph) who lose their father and have no brothers do not want to lose their inheritance and so bring their case to Moses. Moses asks Yahweh for direction Who gives process for passing on inheritance depending on who is left in the family. [v1-11]
+* Yahweh tells Moses to go up to [Mount Abarim](https://en.wikipedia.org/wiki/Abarim) to view the promised land, but that he will die there due to his actions at the waters of Meribah of Kadesh (chapter 20). Moses says Yahweh is the Elohim of all human spirits. [v17] Moses asks Yahweh to appoint someone over the congregation, in which Yahweh responds that He will appoint Joshua. Yahweh says the _Spirit_ is in Joshua. Yahweh says Eleazar will inquire for Joshua via the [Urim](https://en.wikipedia.org/wiki/Urim_and_Thummim). Moses does as commanded by Yahweh, lays his hands on him, and commissions him.
+
