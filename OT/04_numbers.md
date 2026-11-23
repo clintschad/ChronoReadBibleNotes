@@ -182,6 +182,7 @@ Friday, November 20th, 2026
 * Yahweh commands Moses to strike down the Midianites since they were seducing the men. [v17-18] Are the Midianite and Moabite women the same?
 
 ## Ch 26 - Census of the New Generation
+Saturday, November 21st, 2026
 * The Israelites are in the plains of Moab, by the Jordan, at [Jericho](https://en.wikipedia.org/wiki/Jericho).
 * Eleazar seems to now be Moses right hand man. Yahweh also speaks to him, as He did to his father Aaron.
 * Korah (from ch 16) is mentioned. Apparently, his sons lived.
@@ -189,6 +190,17 @@ Friday, November 20th, 2026
 * From the census, the only person left when Yahweh said everyone from Egypt would die in the wilderness is Caleb and Joshua (and presumably Moses).
 
 ## Ch 27 - Joshua Succeeds Moses
-* The daughters of Zelophodad (descenedant of Joseph) who lose their father and have no brothers do not want to lose their inheritance and so bring their case to Moses. Moses asks Yahweh for direction Who gives process for passing on inheritance depending on who is left in the family. [v1-11]
+Sunday, November 22nd, 2026
+* The daughters of Zelophodad (descendent of Joseph) who lose their father and have no brothers do not want to lose their inheritance and so bring their case to Moses. Moses asks Yahweh for direction Who gives process for passing on inheritance depending on who is left in the family. [v1-11]
 * Yahweh tells Moses to go up to [Mount Abarim](https://en.wikipedia.org/wiki/Abarim) to view the promised land, but that he will die there due to his actions at the waters of Meribah of Kadesh (chapter 20). Moses says Yahweh is the Elohim of all human spirits. [v17] Moses asks Yahweh to appoint someone over the congregation, in which Yahweh responds that He will appoint Joshua. Yahweh says the _Spirit_ is in Joshua. Yahweh says Eleazar will inquire for Joshua via the [Urim](https://en.wikipedia.org/wiki/Urim_and_Thummim). Moses does as commanded by Yahweh, lays his hands on him, and commissions him.
 
+## Ch 28 - Daily, Monthly, and Special Offerings
+Monday, November 23rd, 2026
+* Daily offerings (for all Israel, or per family?):
+    - Daily: one lamb in morning, one lamb in evening, flour and oil, wine (drink offering)
+    - Sabbath: in addition to daily offerings, two lambs, oil and flour, wine (drink offering)
+* Monthly offerings:
+    - two bulls, a ram, seven lambs, a male goat (for the sin offering) flour and oil, wine (drink offering)
+    - Passover: two bulls, a ram, seven lambs, and a male goat (for the sin offering), flour and oil,
+* Feast of Weeks:
+    - two bulls, a ram, and seven lambs, a male goat (for the sin offering), flour and oil, possibly wine (drink offering)
