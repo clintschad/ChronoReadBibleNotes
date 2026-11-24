@@ -194,7 +194,7 @@ Sunday, November 22nd, 2026
 * The daughters of Zelophodad (descendent of Joseph) who lose their father and have no brothers do not want to lose their inheritance and so bring their case to Moses. Moses asks Yahweh for direction Who gives process for passing on inheritance depending on who is left in the family. [v1-11]
 * Yahweh tells Moses to go up to [Mount Abarim](https://en.wikipedia.org/wiki/Abarim) to view the promised land, but that he will die there due to his actions at the waters of Meribah of Kadesh (chapter 20). Moses says Yahweh is the Elohim of all human spirits. [v17] Moses asks Yahweh to appoint someone over the congregation, in which Yahweh responds that He will appoint Joshua. Yahweh says the _Spirit_ is in Joshua. Yahweh says Eleazar will inquire for Joshua via the [Urim](https://en.wikipedia.org/wiki/Urim_and_Thummim). Moses does as commanded by Yahweh, lays his hands on him, and commissions him.
 
-## Ch 28 - Daily, Monthly, and Special Offerings
+## Ch 28 - Daily, Monthly, and Holiday Offerings
 Monday, November 23rd, 2026
 * Daily offerings (for all Israel, or per family?):
     - Daily: one lamb in morning, one lamb in evening, flour and oil, wine (drink offering)
@@ -204,3 +204,8 @@ Monday, November 23rd, 2026
     - Passover: two bulls, a ram, seven lambs, and a male goat (for the sin offering), flour and oil,
 * Feast of Weeks:
     - two bulls, a ram, and seven lambs, a male goat (for the sin offering), flour and oil, possibly wine (drink offering)
+
+## Ch 29 - More Holiday Offerings
+Tuesday, November 24th, 2026
+* Similar to previous chapter, with a focus on certain holidays (Day of Atonement, Feast of Trumpets, Feast of Booths).
+* While the other holidays have only one day of offerings, _Feast of Booths_ has eight days of offerings.
