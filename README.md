@@ -10,3 +10,4 @@ Following the 1 year chronological reading from [here](https://www.blueletterbib
 * Is the council of Yahweh consistent throughout the Bible?
 * Are other gods mentioned and treated the same throughout the Bible?
 * Is the concept of the afterlife consistent throughout the Bible?
+* How does Jesus differ from the rest of the prophets?
