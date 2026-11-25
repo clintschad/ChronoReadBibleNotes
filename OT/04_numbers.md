@@ -209,3 +209,19 @@ Monday, November 23rd, 2026
 Tuesday, November 24th, 2026
 * Similar to previous chapter, with a focus on certain holidays (Day of Atonement, Feast of Trumpets, Feast of Booths).
 * While the other holidays have only one day of offerings, _Feast of Booths_ has eight days of offerings.
+
+## Ch 30 - Vows for Men and Women
+Wednesday, November 25th, 2026
+* If a man makes a vow to Yahweh, he is bound to follow through on the vow. [v2]
+* If a woman makes a vow to Yahweh while living in her father's house, if her father hears and says nothing, this is silent approval and she must follow through on her vow. However, if her father speaks against it, then the vow does not stand and Yahweh will forgive her. [v3-5]
+* The same goes for a woman living with her husband, where the husband must make approval for her. Interestingly, if he hears, says nothing, but then later disapproves, he bears her _iniquity_. [v14-15]
+
+## Ch 31 - War On Midian
+Wednesday, November 25th, 2026
+* Phinehas is sent out with the army, bringing the vessels of the sanctuary and the [trumpets](https://en.wikipedia.org/wiki/Chazozra) (ch 10) for the alarm. [v6]
+* Every male Midian is killed, along with the five kings of Midian. Balaam is also killed. [v8]
+* All the women and their children are captured, along with all the Midianite loot. Moses is angry with the army's officers that they let the women live who whored with the Israelite men before and caused Yahweh to send a plague among them (ch 25). (Interestingly, it is mentioned here that the Midianite women did this on Balaam's advice, though this wasn't mentioned in ch 25.) Moses commands that all the non-virgin women be killed and all the male little ones be killed. This is a hard pill to swallow here; I wonder how young? [v14-18]
+* The loot is to be purified either by passing it through fire (e.g. metal items) or via the [_water for impurity_](https://en.wikipedia.org/wiki/Water_of_lustration) (ch 19).
+* Yahweh commands Moses to divide the captured people and cattle, giving half to the army, and half to the people. Yahweh takes 1/500th of the army's loot and 1/50th of the people's loot as his tribute. [v25-47]
+* The army officers then bring all the metal loot to Yahweh (armlets, bracelets, earrings, etc) and Eleazar places them in the Tabernacle as a memorial for the people before Yahweh. [v48-54]
+
