@@ -225,3 +225,7 @@ Wednesday, November 25th, 2026
 * Yahweh commands Moses to divide the captured people and cattle, giving half to the army, and half to the people. Yahweh takes 1/500th of the army's loot and 1/50th of the people's loot as his tribute. [v25-47]
 * The army officers then bring all the metal loot to Yahweh (armlets, bracelets, earrings, etc) and Eleazar places them in the Tabernacle as a memorial for the people before Yahweh. [v48-54]
 
+## Ch 32 - Reuben and Gad Claim Gilead
+Friday, November 27th, 2026
+* The land of Jazer and the land of Gilead appeal to the people of Reuben and Gad given all the livestock they have. They ask Moses if they can settle there instead of crossing the Jordan into the Promised Land. Moses reminds them of the twelve spies giving a bad report about the land and Yahweh making the people wander in the wilderness as a result. Moses and the people of Reuben and Gad come to an agreement: the land can be theirs, and they can leave their wives and children there. But the fighting men must first cross over and help the rest of the Israelites take the Promised Land before they can return to the land of Jazer and Gilead.
+
