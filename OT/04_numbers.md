@@ -229,3 +229,8 @@ Wednesday, November 25th, 2026
 Friday, November 27th, 2026
 * The land of Jazer and the land of Gilead appeal to the people of Reuben and Gad given all the livestock they have. They ask Moses if they can settle there instead of crossing the Jordan into the Promised Land. Moses reminds them of the twelve spies giving a bad report about the land and Yahweh making the people wander in the wilderness as a result. Moses and the people of Reuben and Gad come to an agreement: the land can be theirs, and they can leave their wives and children there. But the fighting men must first cross over and help the rest of the Israelites take the Promised Land before they can return to the land of Jazer and Gilead.
 
+## Ch 33 - Israelite Journey Recap
+Saturday, November 28th, 2026
+* Yahweh executed judgment on the gods of Egypt. [v4] Does this mean the text assumes existence of other gods?
+* Aaron died 40 years after the Israelites left Egypt. He was 123 years old. [39]
+* Yahweh tells Moses to tell the people that if they do not drive everyone out of the Promised Land, then those people will be a thorn in their side. Yahweh also says that He will do to the Israelites as He thought to do the Canaanites, which I assume is drive them out. [v55]
